@@ -28,6 +28,8 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 
 "The Vedic scriptures and the acaryas, or saintly teachers, are compared to expert boatmen, and the facilities of the human body are compared to favorable breezes that help the boat ply smoothly to its desired destination. If, with all these facilities, a human being does not fully utilize his life for self-realization, he must be considered atma-ha, a killer of the soul."
 
+- Srila Prabhupada
+
 ---
 
 ## Slide 4: Principle 3 — Overcoming Spiritual Suicide
@@ -60,7 +62,7 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 ## Slide 7: The First Technology of the Love-Finder
 ### **Treating Everyone as Essential**
 
-"Treat everyone you encounter as if the success of your spiritual life depends upon the quality of your interactions with them."
+1. "Treat everyone you encounter as if the success of your spiritual life depends upon the quality of your interactions with them."
 
 "If we can function in this mood, then every association becomes a wonderful chance to enhance our spiritual life and a wonderful chance to grow and serve."
 
@@ -71,14 +73,14 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 
 1. Compassion over Ego: Bhakti Tirtha Swami warns that when we try to address discrepancies with anger or self-righteousness, the person's ego attacks back, "creating a big mess." How can we practically train our hearts to respond with pity and compassion rather than defensive anger when we see a devotee struggling?
 
-2. Treating Everyone as Essential: What happens to our daily community interactions when we try to apply B.T. Swami's first relationship technology: "Treat everyone you encounter as if the success of your spiritual life depends upon the quality of your interactions with them"?
+2. Treating Everyone as Essential: What happens to our daily community interactions when we try to apply the first relationship technology: "Treat everyone you encounter as if the success of your spiritual life depends upon the quality of your interactions with them"?
 
 ---
 
 ## Slide 9: The Second Technology of the Love-Finder
 ### **Viewing Conflicts with Humility**
 
-"View all conflicts as your own fault first. When we care about a person and see him or her in pain, we immediately want to see how we can make a difference. We are eager to look at ourselves and with humility ask, 'What can I do?'"
+2. "View all conflicts as your own fault first. When we care about a person and see him or her in pain, we immediately want to see how we can make a difference. We are eager to look at ourselves and with humility ask, 'What can I do?'"
 
 "How wonderful when one of the people in a conflict is strong enough to think, 'I am not going to fight over this issue or let my ego take over. I want to look at what I could have done and what I can do now to create a greater sense of devotion in our community and in our service.'"
 
@@ -87,7 +89,7 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 ## Slide 10: The Third Technology of the Love-Finder
 ### **Harnessing Pure Love**
 
-"Reflect on the person you love the most, and aspire to treat everyone with that same quality of love. Sometimes in our materialistic consciousness, we have problems just trying to understand love."
+3. "Reflect on the person you love the most, and aspire to treat everyone with that same quality of love. Sometimes in our materialistic consciousness, we have problems just trying to understand love."
 
 "We cannot purely love until we are freed from all sense gratification and from the material body because pure love is the full property of the soul. As a way to try to harness this love, we can think of the person who we love the most and extend that love to everyone."
 
@@ -96,7 +98,7 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 ## Slide 11: The Fourth Technology of the Love-Finder
 ### **The Seriousness of Association**
 
-"Realize that the people in your present environment might very well be the people with whom you will live out your life, and who will be with you at the time of death."
+4. "Realize that the people in your present environment might very well be the people with whom you will live out your life, and who will be with you at the time of death."
 
 "There are no accidents; Krishna is controlling everything. We know that at any moment, we could leave the body. In many cases, we may very well leave our body in the association of the devotees in our current environment. Whatever we are formulating in our consciousness now will determine what happens when the soul is ready to leave. Therefore, we should take our associations very seriously and see how to maximize the bhakti."
 
