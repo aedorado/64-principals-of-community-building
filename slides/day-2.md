@@ -53,7 +53,16 @@ Understanding why mature peer relationships are the prerequisite for a genuine c
 
 ---
 
-## Slide 7: Vaishnava Sangha
+## Slide 7: The Danger of Mechanical Service
+### **External Performance vs. Deep Devotion**
+
+"Even by looking at our own society of devotees, we can gain this understanding. We have seen that devotees can be externally engaged in service for many years, but if they do not have a deep quality of devotion and love, there will not be a sense of longevity. They will not have deeper realizations and experiences, and will go on only mechanically in their devotional service."
+
+"But as we understand what we read and thus practice it amongst ourselves, it will become more fixed in our minds and hearts. Krishna, who is hiding in the heart, will begin to come out and send signals as long as we do not allow our own obfuscations to block that connection."
+
+---
+
+## Slide 8: Vaishnava Sangha
 ### **Heart-to-Heart Reflection (Integration Bridge)**
 
 1. Sentimentalism vs. Cooperation: Why is it often easier to feel "connected" to the guru from a distance than to cooperate with a peer devotee who is physically in our environment?
@@ -62,7 +71,7 @@ Understanding why mature peer relationships are the prerequisite for a genuine c
 
 ---
 
-## Slide 8: Sincere Teachers and Guides
+## Slide 9: Sincere Teachers and Guides
 ### **The Prerequisite for Proper Shelter**
 
 "The relationship between the disciple and the spiritual master is essential. We cannot have a clear understanding of love of God without involving ourselves in the bona fide systems and practices given by the Lord Himself. If it were so easy to develop God consciousness without the help of others, why does Krishna constantly send different representatives and teachers?"
@@ -71,28 +80,17 @@ Understanding why mature peer relationships are the prerequisite for a genuine c
 
 ---
 
-## Slide 9: The Danger of Single-Handed Speculation
+## Slide 10: The Danger of Single-Handed Speculation
 ### **The Folly of the Independent Path**
 
 "If we try to succeed on the spiritual path alone, we are basically just engaged in speculation and interpolation. At the end of the day, it will leave us frustrated because it is not quite that simple."
 
 ---
 
-## Slide 10: Transforming Lust Into Love
+## Slide 11: Transforming Lust Into Love
 ### **The Real Purpose of Relationships**
 
 "Love of God is locked up in the heart of the pure devotees, and by following the path given by such unadulterated devotees, we can begin to also experience the transcendental culture. We have a wonderful chance to tune into the real purpose of life—a wonderful chance to end relationships based on lust and understand what love really entails."
-
----
-
-## Slide 11: Daily Summary & Realization
-### **Key Takeaways of Day 2**
-
-Relationship is the absolute center of our existence, both in the material and spiritual world. We cannot advance in spiritual life independently.
-
-True guru-bhakti is not a sentimental hero-worship of the spiritual master from a distance, but is verified by our willingness to cooperate with our peers.
-
-By replacing self-interest and superficial etiquette with transparent communication and genuine vulnerability, we transition from blind external rituals into a vibrant spiritual family.
 
 ---
 
@@ -100,7 +98,5 @@ By replacing self-interest and superficial etiquette with transparent communicat
 ### **An Immediate Heart Offering**
 
 **The Live WhatsApp offering:**
-Maharaja will pause the Zoom call for exactly two minutes. Every devotee is invited to take out their phone right now. Send a private, sincere WhatsApp message to a peer devotee on this call, or in your local community, expressing one specific thing you appreciate about their character or service.
+The Zoom meeting for exactly five minutes. Every devotee is invited to take out their phone right now. Send a private, sincere WhatsApp message to a peer devotee on this call, or in your local community, expressing one specific thing you appreciate about their character or service.
 
-**The Chat Box Vow of Celebration:**
-Once you have sent your message, open the Zoom chat box and type: "I have offered my word of appreciation to a Vaishnava today as an offering of love."

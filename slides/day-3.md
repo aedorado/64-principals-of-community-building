@@ -3,7 +3,6 @@
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
-#### *Based on the Teachings of HH Bhakti Tirtha Swami*
 
 **Day 3: Congregational Chanting & Overcoming the Enjoyer Mentality**
 Systematic Study of Principle 1 (Sankirtana as Our Motto) and Principle 2 (Krishna as the Only Enjoyer)
@@ -13,100 +12,122 @@ Systematic Study of Principle 1 (Sankirtana as Our Motto) and Principle 2 (Krish
 
 ---
 
-## Slide 2: Core Vision
-### **Aligning with the Divine Axis**
-*“To build a sacred community, we must place congregational chanting at the absolute center of our lives and dismantle the illusion that we are the enjoyers.”*
+## Slide 2: Principle 1 — Sankirtana as Our Supreme Motto
+### **The Only Motto of the Gaudiya Matha**
 
-This session establishes our dual foundation. Principle 1 establishes our supreme method: the cooperative, congregational glorification of the Holy Name. Principle 2 targets the root cause of all conflict: our deep-seated desire to be the enjoyer, controller, and center of attention. By chanting together in a mood of surrender, we naturally cure the heart of its selfish desires.
+"Sri Caitanya Mahaprabhu’s instruction in Siksastakam, param vijayate sri-krsna-sankirtanam, is the only motto of the Gaudiya Matha."
 
----
+"Lord Caitanya did not write many books; He only left in writing eight prayers known as Sri Siksastaka. He is God Himself who comes in the most magnanimous form:"
 
-## Slide 3: Principle 1 — Sankirtana as Our Supreme Motto
-### **The Non-Dual Savior of Kali-Yuga**
-*“In this age, there is no other sadhana, no other sacrifice, and no other refuge than the congregational chanting of the Holy Name.”*
-
-Sankirtana is not just one of many activities we perform; it is the very life-force of our community. It is a non-dual process that simultaneously purifies the chanter, the hearer, and the entire environment. When a community unites in congregational chanting with a shared focus, all minor disagreements and domestic agitations are naturally dissolved.
+"namo maha-vadanyaya / krsna-prema-pradaya te / krsnaya krsna-caitanya- / namne gaura-tvise namah / O most munificent incarnation! You are Krsna Himself appearing as Sri Krsna Caitanya Mahaprabhu. You have assumed the golden color of Srimati Radharani, and You are widely distributing pure love of Krsna. We offer our respectful obeisances unto You."
 
 ---
 
-## Slide 4: The Power of Joint Glorification
-### **Sustaining the Temple Atmosphere**
-*“When we chant together with sincere hearts, we import the atmosphere of Goloka Vrindavana directly into our midst.”*
+## Slide 3: Lord Caitanya’s Magnanimous Example
+### **The Mission of the Yuga-Dharma**
 
-A temple functions as a true spiritual embassy only when the sweet sound of the Holy Name is constantly vibrating. This joint glorification protects the community from the heavy, mechanical, and impersonal modes of the material world. It creates a thick, protective shield of spiritual energy that guards the heart of every resident devotee.
+"He instructs us, through His personal example, on how to spread the yuga-dharma or the religion of the age."
+
+"Caitanya-caritamrta, which details the activities of Lord Caitanya, gives one of the most distinct guides on how devotees should interact. The Lord arranges for spiritual ideals to come alive in this world and leaves us with an example to follow."
+
+"We hear about the nitya-siddhas or eternally liberated souls who come into this world in disguise and show us how to perform devotional service. In this way, we can become like them and enter the spiritual kingdom."
 
 ---
 
-## Slide 5: The Danger of Mechanical Chanting
-### **Moving from Ritual to Relationship**
-*“Chanting without heart, without focus, and without a desire to please the Lord becomes a dry, corporate ritual.”*
+## Slide 4: The Totality of Vaishnava Culture
+### **The Gift of the Siksastaka**
 
-Simply repeating syllables while the mind wanders over material plans and offenses is a dangerous trap. Sincere sankirtana requires us to beg for the mercy of the Holy Name, chanting with a deep sense of dependence and shelter. We must train ourselves to hear each name, offering our full consciousness as a humble sacrifice.
+"Within the Siksastaka prayers is the totality of Vaisnava culture. If we meditate deeply on the meaning of these prayers and absorb ourselves in them daily, we will discover how they contain everything that we need to become devotees."
+
+"They teach us how to think, what to aspire for, how to interact, and what can be achieved. The Lord left only these eight prayers as a way to make the essential points very obvious for those who want to take advantage."
+
+---
+
+## Slide 5: The Potency of Joint Glorification
+### **Sankirtana as the Core of Community**
+
+"Srila Bhaktisiddhanta specifically starts off by emphasizing the essence of the first Siksastaka prayer. He states that the congregational chanting of the Lord’s holy names is the motto for all devotees."
+
+"Sankirtana is an individual and collective appeal for Krishna’s mercy, protection, blessings, and service."
+
+"Lord Caitanya consistently engaged in congregational chanting, showing us the potency of calling on the names of the Lord in the association of other Vaisnavas. We can create powerful communities by coming together for the purpose of glorifying the Supreme Lord."
 
 ---
 
 ## Slide 6: Principle 2 — Recognizing the Only Enjoyer
-### **Uprooting the Purusa-Bhava**
-*“There is only one Purusa—the Supreme Lord Krishna. We are all Prakrti—His eternal energies meant solely for His enjoyment.”*
+### **The Root of Unhealthy Relationships**
 
-Every conflict in our families and communities arises because we are trying to act as enjoyers. The false ego constantly whispers: *“I want my way, my comfort, my prestige, and my control.”* Spiritual sanity begins only when we recognize that we are not the center of the universe, and that our real identity is to be enjoyed by Krishna.
+"The Supreme Personality of Godhead, Sri Krsna, is the only enjoyer. Everyone and everything else is the object of His enjoyment."
 
----
+"Unhealthy relationships and minimal advancement within the devotional process often stem from the fact that we are too egocentric and into our own sovereignty."
 
-## Slide 7: The Analogy of the Hand and the Stomach
-### **The Illusion of Independent Enjoyment**
-*“A hand cannot find happiness by trying to eat food separately. It must place the food in the mouth to nourish the stomach.”*
-
-Just as the hand is satisfied only by serving the stomach, we find real joy only by serving Krishna’s pleasure. Trying to hoard credit, distinction, or material enjoyment separately from Krishna always leaves us feeling empty, frustrated, and dry. True pleasure is reflected: when Krishna is pleased, our hearts are naturally nourished.
+"Even when we come into community, we have a tendency to use it for our own benefit. We want to see what we can get. Many times when people come into the association of devotees, instead of trying to share and give, they are more or less trying to see what they can get out of the situation."
 
 ---
 
-## Slide 8: The Danger of Seeking Distinction
-### **The Subtle Sex of the False Ego**
-*“The desire for distinction, fame, and separate worship is the most dangerous weed. It is the subtle sex of the mind.”*
+## Slide 7: Exposing the "Pseudo-Community"
+### **The Trap of Self-Preservation**
 
-Wanting to be seen as the most advanced, the best cook, the most eloquent speaker, or the most respected leader is a highly competitive drive that destroys the cooperative spirit of the community. We must actively train ourselves to push others forward, learning to take delight in their success and glorification rather than our own.
+"This is called pseudo-community because it does not create real communication or cooperation between the members. It is based on a salvationist consciousness in which individuals just want to ensure their own peace and happiness."
 
----
+"We cannot have deep relationships if we mainly focus on self-preservation or material accumulation."
 
-## Slide 9: Becoming the Object of His Enjoyment
-### **The Mood of Unalloyed Dedication**
-*“To be Prakrti means to exist solely for the pleasure of the Purusa. Our lives are successful when Krishna takes pleasure in us.”*
-
-We must make a devotional pivot in our prayers, shifting from: *“Krishna, satisfy my senses,”* to: *“Krishna, how can I use my body, mind, and words to satisfy You?”* When we embrace this mood of unalloyed dedication, our service becomes light, joyful, and completely free from the heavy burden of material expectation.
+"The living entities in this conditioned world are My eternal fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind."
 
 ---
 
-## Slide 10: Dismantling the Master-Mentality
-### **Serving with No Strings Attached**
-*“As soon as we expect return from our service—whether it is respect, control, or wealth—we are acting as masters, not servants.”*
+## Slide 8: Restoring the Divine Order
+### **Shifting Our Vision to the Only Enjoyer**
 
-Bhakti Tirtha Swami warns that demanding recognition for our service is a symptom of the master-mentality. Sincere devotees serve with no strings attached, happy simply to be allowed to offer some small assistant to the Vaishnavas. We must learn to measure our advancement not by how much respect we receive, but by how much we are willing to serve without expecting anything in return.
+"By no longer seeing ourselves as enjoyers, we can begin to see Krishna as the only enjoyer. This understanding will also enable us to have a clearer understanding of our position and the position of the people around us."
+
+"Ultimately, God is the only purusa, or Supreme Enjoyer, and we are all prakrti. We are the same as the Lord in quality, but different in quantity:"
 
 ---
 
-## Slide 11: Daily Summary & Realization
-### **Key Takeaways of Day 3**
-*Pure chanting and the servant-mood are our twin shelters.*
+## Slide 9: The Analogy of the Hand and Stomach
+### **The Folly of Separate Enjoyment**
 
-Congregational chanting is the supreme life-force of devotee community, protecting us from impersonalism and dry ritual. We must actively dismantle the purusa-bhava—our desire to be the enjoyer and controller—by realizing we are like the hand meant to nourish the stomach of Krishna. By conquering the lust for distinction, we can cooperate in pure devotion.
+"By trying to enjoy separately in this constant pattern, we cannot be happy. For instance, a person’s hand cannot enjoy separately from the body."
+
+"If someone brings a plate of food and the hand tries to enjoy the food without putting it into the mouth, not only will the mouth not be satisfied, but the hand will not be satisfied either. Unless the food goes into the mouth and then to the stomach, the entire body including the hand will not receive the proper nourishment."
+
+"Similarly, as the living entity tries to enjoy separate from God, who is the source, and tries to act as the enjoyer, it will be like the hand trying to enjoy separate from the body. Therefore, the living entity is constantly in anxiety because the objects of enjoyment seem to be available, but the living entity cannot really get sufficient satisfaction."
+
+---
+
+## Slide 10: The Dessert Analogy
+### **Sustenance That Fails to Nourish**
+
+"For this reason, even if we somehow or other get fame, distinction, wealth, or other types of opulence, they will not completely fulfill us without spiritual life. It is like the hand grabbing onto a delicious dessert and trying to enjoy without putting the dessert in the mouth."
+
+"The hand might enjoy the texture, but it cannot enjoy the taste. It must put the dessert into the mouth in order to fully enjoy the foodstuff."
+
+"We constantly see people trying to enjoy in so many different ways with the idea that they will find happiness from an object or type of pleasure. However, once the novelty wears off, they sometimes end up in a worse position than before beginning the pursuit."
+
+---
+
+## Slide 11: Nourishing the Whole System
+### **Placing Krishna at the Center**
+
+"Unless it nourishes the whole system, there will be complications. If we see Krishna as the enjoyer and see ourselves as parts and parcels fully connected to the source, then every aspect of our being benefits."
 
 ---
 
 ## Slide 12: Vaishnava Sangha
 ### **Heart-to-Heart Reflection**
 
-1. **The Enjoyer Zone:** Can you share a practical experience of how trying to seek personal credit, control, or distinction in your service left you feeling spiritually dry and empty?
-2. **The Sankirtana Solution:** How does regular, sincere congregational chanting help to actively dismantle our subtle "enjoyer mentality" on a daily basis?
+1. Exposing the Salvationist Mindset: Bhakti Tirtha Swami warns against pseudo-community, where we attend devotee gatherings primarily to seek our own comfort, peace, or material validation. How can we catch this salvationist mindset in our own hearts, and how does it prevent us from having deep, cooperative relationships with our godbrothers and godsisters?
+
+2. The Hand and Stomach Test: Can you share a practical experience from your own service where trying to act as the enjoyer or seeking separate credit for a successful project left you feeling spiritually dry and empty, exactly like a hand trying to touch a dessert without tasting it?
 
 ---
 
 ## Slide 13: Hrdaya Seva
 ### **An Immediate Heart Offering**
 
-* **The Sincere Mind-Fast (60 Seconds):**
-  * Maharaja will ask everyone to close their eyes and sit in silence.
-  * Meditate on your current services. Honestly search your heart for any desire for credit, praise, or distinction attached to those services.
-  * Mentally gather those desires and offer them as a sacrifice at the feet of the disciplic succession, praying: *“My dear Lord, I am not the enjoyer of this service. Let all the credit and praise go directly to my spiritual master and Srila Prabhupada.”*
-* **A Chat Box Vow of Dedication:**
-  * Type in the Zoom chat: *“I am eternally a servant of the servant. Let all credit go to the disciplic succession.”*
+**The Sincere Mind-Fast (60 Seconds):**
+Maharaja will play soft flute music and ask everyone to close their eyes and sit in complete silence. Honestly search your heart for any current service where you are secretly seeking fame, personal distinction, or separate appreciation. Mentally gather those desires, and with absolute sincerity, lay them at the feet of the disciplic succession, praying: *“My dear Lord, I am not the enjoyer of this service. Let every ounce of credit and praise go directly to my spiritual master and Srila Prabhupada.”*
+
+**The Vow of the Heart (Offline & Private):**
+Take out a physical slip of paper and a pen from your desk. Write down one specific, realistic 24-hour vow of action to uproot the enjoyer mentality (for example: "For the next 24 hours, I will speak zero words of separate criticism," or "Today, I will dedicate 15 minutes to single-minded reading without my phone nearby"). Fold the paper, turn away from the screen, and place it physically on your home altar under your Deities or Srila Prabhupada as a direct, private promise.

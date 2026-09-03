@@ -89,7 +89,7 @@ Establishing the foundational mindset for a healthy devotee community and laying
 ## Slide 10: Our Sacred Journey
 ### **Semester 1 Roadmap Overview**
 
-To facilitate our mutual healing, this course operates as a systematic, step-by-step master class. Over our first semester, we will travel together through the first **30 Principles** of community, dividing them into three distinct, highly focused modules designed to guide us from foundational relationship dynamics to advanced personal surrender.
+To facilitate our mutual healing, this course operates as a systematic, step-by-step master class. Over our first semester, we will travel together through the first **30 Principles** of Bhakti culture, dividing them into three distinct, highly focused modules designed to guide us from foundational relationship dynamics to advanced personal surrender.
 
 This structured approach ensures that we do not treat these sixty-four guidelines as a dry list of rules, but rather as an active, daily sadhana for transforming our behavior, uprooting envy, and establishing genuine, loving alliances under the shelter of the disciplic succession.
 
@@ -122,26 +122,11 @@ We will study how to avoid offenses (Principles 27 & 28), view the material worl
 
 ---
 
-## Slide 14: Daily Summary & Realization
-### **Key Takeaways of Day 1**
-
-The purpose of devotee community is to treat the heart diseases of the soul under a strict, scientific process of purification.
-
-Our peer relationships are mirrors that expose our true anarthas, showing us exactly what needs to be healed.
-
-To navigate this semester successfully, we must commit to the roadmap, viewing the upcoming thirty principles as a systematic program of clinical treatment for our false ego.
-
----
-
-## Slide 15: Hrdaya Seva
+## Slide 14: Hrdaya Seva
 ### **An Immediate Heart Offering**
 
 **The Sincere Mind-Fast (60 Seconds):**
-Close your eyes and sit in complete silence. Honestly search your heart for any current devotee relationships where you are holding onto judgment, friction, or resentment. Mentally drop those complaints, and for the next 60 seconds, beg the disciplic succession to pour blessings, spiritual health, and happiness upon those souls.
+Maharaja will play soft flute music and ask everyone to close their eyes and sit in complete silence. Honestly search your heart for any current devotee relationships where you are holding onto judgment, friction, or resentment. Mentally drop those complaints, and for the next 60 seconds, beg the disciplic succession to pour blessings, spiritual health, and happiness upon those souls.
 
-**The Semester Vow of Dedication:**
-Open the Zoom chat box right now. To declare your commitment to this shared journey of healing, type a public vow to the assembly: *“I humbly enter this transcendental hospital as a patient. I commit to this road of purification alongside my brothers and sisters.”*
-
-OR
-
-**The Chat Box Flood of Gratitude**: Open the Zoom chat box right now. Type a public word of appreciation for a specific devotee on this call who has been an anchor of faith or a source of shelter in your spiritual journey. Let us flood our screens with Vaishnava gratitude.
+**The Chat Box Flood of Gratitude:**
+Open the Zoom chat box right now. Take a moment to type a sincere, personal word of appreciation for a specific devotee on this call who has been an anchor of faith, a comfort, or a shelter in your spiritual journey. Let us flood our screens with genuine Vaishnava gratitude.
