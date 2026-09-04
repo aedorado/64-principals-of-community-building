@@ -1,10 +1,10 @@
-# Day 28 Slide Deck: Dedicated Q&A & Case Study Clinic III - Part B
+# Day 27 Slide Deck: Dedicated Q&A & Case Study Clinic III - Part B
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 28: Dedicated Q&A & Case Study Clinic III - Part B**
+**Day 27: Dedicated Q&A & Case Study Clinic III - Part B**
 Exploring Institutional Struggles, Philosophical Deviations, and a Deep Historical Analysis of the Rtvik Movement.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja
