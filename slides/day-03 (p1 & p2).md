@@ -15,46 +15,28 @@ Systematic Study of Principle 1 (Sankirtana as Our Motto) and Principle 2 (Krish
 ## Slide 2: Principle 1 — Sankirtana as Our Supreme Motto
 ### **The Only Motto of the Gaudiya Matha**
 
-"Sri Caitanya Mahaprabhu’s instruction in Siksastakam, param vijayate sri-krsna-sankirtanam, is the only motto of the Gaudiya Matha."
+"**Sri Caitanya Mahaprabhu’s instruction in Siksastakam, param vijayate sri-krsna-sankirtanam, is the only motto of the Gaudiya Matha.**"
 
-"Lord Caitanya did not write many books; He only left in writing eight prayers known as Sri Siksastaka. He is God Himself who comes in the most magnanimous form:"
-
-"namo maha-vadanyaya / krsna-prema-pradaya te / krsnaya krsna-caitanya- / namne gaura-tvise namah / O most munificent incarnation! You are Krsna Himself appearing as Sri Krsna Caitanya Mahaprabhu. You have assumed the golden color of Srimati Radharani, and You are widely distributing pure love of Krsna. We offer our respectful obeisances unto You."
-
----
-
-## Slide 3: Lord Caitanya’s Magnanimous Example
-### **The Mission of the Yuga-Dharma**
-
-"He instructs us, through His personal example, on how to spread the yuga-dharma or the religion of the age."
-
-"Caitanya-caritamrta, which details the activities of Lord Caitanya, gives one of the most distinct guides on how devotees should interact. The Lord arranges for spiritual ideals to come alive in this world and leaves us with an example to follow."
-
-"We hear about the nitya-siddhas or eternally liberated souls who come into this world in disguise and show us how to perform devotional service. In this way, we can become like them and enter the spiritual kingdom."
-
----
-
-## Slide 4: The Totality of Vaishnava Culture
 ### **The Gift of the Siksastaka**
 
-"Within the Siksastaka prayers is the totality of Vaisnava culture. If we meditate deeply on the meaning of these prayers and absorb ourselves in them daily, we will discover how they contain everything that we need to become devotees."
+"Within the **Siksastaka prayers** is the **totality of Vaisnava culture**. If we **meditate deeply on the meaning** of these prayers and **absorb ourselves in them daily,** we will discover how they contain everything that we need to become devotees."
 
-"They teach us how to think, what to aspire for, how to interact, and what can be achieved. The Lord left only these eight prayers as a way to make the essential points very obvious for those who want to take advantage."
+"They teach us *how to think*, *what to aspire for*, *how to interact*, and *what can be achieved* s. The Lord left only these eight prayers as a way to make the essential points very obvious for those who want to take advantage."
 
 ---
 
-## Slide 5: The Potency of Joint Glorification
+## Slide 4: The Potency of Joint Glorification
 ### **Sankirtana as the Core of Community**
 
 "Srila Bhaktisiddhanta specifically starts off by emphasizing the essence of the first Siksastaka prayer. He states that the congregational chanting of the Lord’s holy names is the motto for all devotees."
 
-"Sankirtana is an individual and collective appeal for Krishna’s mercy, protection, blessings, and service."
+"Sankirtana is an **individual and collective appeal** for Krishna’s mercy, protection, blessings, and service."
 
-"Lord Caitanya consistently engaged in congregational chanting, showing us the potency of calling on the names of the Lord in the association of other Vaisnavas. We can create powerful communities by coming together for the purpose of glorifying the Supreme Lord."
+"Lord Caitanya consistently engaged in congregational chanting, showing us the potency of calling on the names of the Lord in the association of other Vaisnavas. **We can create powerful communities by coming together for the purpose of glorifying the Supreme Lord.**"
 
 ---
 
-## Slide 6: Principle 2 — Recognizing the Only Enjoyer
+## Slide 5: Principle 2 — Recognizing the Only Enjoyer
 ### **The Root of Unhealthy Relationships**
 
 "The Supreme Personality of Godhead, Sri Krsna, is the only enjoyer. Everyone and everything else is the object of His enjoyment."
@@ -65,8 +47,7 @@ Systematic Study of Principle 1 (Sankirtana as Our Motto) and Principle 2 (Krish
 
 ---
 
-## Slide 7: Exposing the "Pseudo-Community"
-### **The Trap of Self-Preservation**
+## Slide 6: Exposing the "Pseudo-Community"
 
 "This is called pseudo-community because it does not create real communication or cooperation between the members. It is based on a salvationist consciousness in which individuals just want to ensure their own peace and happiness."
 
