@@ -74,9 +74,12 @@ This structured approach ensures that we do not treat these sixty-four guideline
 
 ---
 
-## Slide 9: Hrdaya Seva
-### **An Immediate Heart Offering**
+## Slide 9: From Hearing to Living
+**An Immediate Heart Offering**
 
-*I was especially inspired because, despite his very critical state of physical health, Maharaja is continuing to write Krishna conscious literatures to inspire and uplift others. In a true display of disciplic succession, Maharaja has wholly imbibed the spirit of Srila Prabhupada and Srila Bhaktisiddhanta Sarasvati Thakura’s intense determination to spread Krishna consciousness.*
+As we watch the final days of Maharaja’s life and witness his determination to continue serving despite his failing body, we are reminded of the immense sacrifice through which Krishna consciousness has reached us.
 
-Having participated in the divine enthusiasm of Srila Bhakti Tirtha Swami Maharaja and our Srila Prabhupada, we invite you to express your heartfelt gratitude and make a committment for the month of Kartik as a gratitude to our acaryas for the great sacrifices they have made for us
+**What does this gift mean to you personally?**  
+And, in gratitude to the acaryas who gave so much for us, **what is one commitment you would like to make this Kartik to serve, grow, and become a little more useful to Krishna and His devotees?**
+
+Let this 30-day journey be your small offering of gratitude.
