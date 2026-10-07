@@ -65,12 +65,21 @@ Establishing the foundational mindset for a healthy devotee community and laying
 
 ---
 
-## Slide 8: Placeholder >Our Sacred Journey<
-### **Semester 1 Roadmap Overview**
+## Slide 8: Our Sacred Journey
+### **Semester 1 Roadmap (Principles 1–30)**
 
-To facilitate our mutual healing, this course operates as a systematic, step-by-step master class. Over our first semester, we will travel together through the first **30 Principles** of Bhakti culture, dividing them into three distinct, highly focused modules designed to guide us from foundational relationship dynamics to advanced personal surrender.
+A 30-day systematic sadhana moving from relationship dynamics to personal surrender:
 
-This structured approach ensures that we do not treat these sixty-four guidelines as a dry list of rules, but rather as an active, daily sadhana for transforming our behavior, uprooting envy, and establishing genuine, loving alliances under the shelter of the disciplic succession.
+* **Module 1: Foundations of Healing (Days 1–12 | Principles 1–10)**  
+  The *Transcendental Hospital* mindset, sankirtana motto, and replacing fault-finding with love-finding.
+
+* **Module 2: Internal Alignment (Days 13–21 | Principles 11–20)**  
+  Disciplic shelter, sastric safeguards, welcoming correction, and simplicity as true Vaishnavism.
+
+* **Module 3: Surrender & Integrity (Days 22–30 | Principles 21–30)**  
+  Practicing before preaching, offering the heart over "wood & stone," and facing tests without escapism.
+
+> **The Goal:** Transforming 64 principles from a dry rulebook into a living culture of love and mutual healing.
 
 ---
 
