@@ -1,10 +1,10 @@
-# Day 20 Slide Deck: Dedicated Clinic II - Part C (Questions 7, 8, 9)
+# Day 21 Slide Deck: Dedicated Clinic II - Part C (Questions 7, 8, 9)
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 20: Dedicated Clinic II - Part C**
+**Day 21: Dedicated Clinic II - Part C**
 Dissecting preaching strategies, failed service plans, and the ultimate science of self-love from the Q&As of our Acharya.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja

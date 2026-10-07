@@ -1,10 +1,10 @@
-# Day 8 Slide Deck: Discussions of Hari as Places of Pilgrimage (Principle 8)
+# Day 09 Slide Deck: Discussions of Hari as Places of Pilgrimage (Principle 8)
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 8: Discussions of Hari as Places of Pilgrimage**
+**Day 09: Discussions of Hari as Places of Pilgrimage**
 Systematic Study of Principle 8: Discussions of Hari, the spiritual embassy, and the power of the holy name.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja

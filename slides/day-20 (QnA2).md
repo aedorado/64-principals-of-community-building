@@ -1,10 +1,10 @@
-# Day 19 Slide Deck: Dedicated Clinic II - Part B (Questions 4, 5, 6)
+# Day 20 Slide Deck: Dedicated Clinic II - Part B (Questions 4, 5, 6)
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 19: Dedicated Clinic II - Part B**
+**Day 20: Dedicated Clinic II - Part B**
 Dissecting family debts, the traps of material nightlife, and the warfare of public outreach from the Q&As of our Acharya.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja

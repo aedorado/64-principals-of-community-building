@@ -1,10 +1,10 @@
-# Day 11 Slide Deck: Dedicated Q&A & ic I (Foundations of Community)
+# Day 12 Slide Deck: Dedicated Q&A & Relationship Clinic I (Foundations of Community)
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 11: Dedicated Q&A & ic I**
+**Day 12: Dedicated Q&A & Relationship Clinic I**
 Dissecting the real-world, highly sensitive relationship challenges of Principles 1 to 10 under the guidance of our Acharyas.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja

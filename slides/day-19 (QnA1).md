@@ -1,10 +1,10 @@
-# Day 18 Slide Deck: Dedicated Clinic II - Part A (Questions 1, 2, 3)
+# Day 19 Slide Deck: Dedicated Clinic II - Part A (Questions 1, 2, 3)
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 18: Dedicated Clinic II - Part A**
+**Day 19: Dedicated Clinic II - Part A**
 Dissecting the spiritual science of critics, identity, and Maya's tests from the uncompromised Q&As of our Acharya.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja

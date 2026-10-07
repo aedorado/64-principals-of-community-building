@@ -1,10 +1,10 @@
-# Day 26 Slide Deck: Dedicated Q&A & Case Study Clinic III - Part A
+# Day 28 Slide Deck: Dedicated Q&A & Case Study Clinic III - Part A
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 26: Dedicated Q&A & Case Study Clinic III - Part A**
+**Day 28: Dedicated Q&A & Case Study Clinic III - Part A**
 An In-Depth Interactive Session on Family Duties, Detachment, and the Scientific Criteria for Choosing a Spiritual Master.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja

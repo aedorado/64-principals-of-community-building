@@ -1,10 +1,10 @@
-# Day 5 Slide Deck: The Art of Tolerance in the Hospital Ward (Principle 4)
+# Day 06 Slide Deck: The Art of Tolerance in the Hospital Ward (Principle 4)
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 5: The Art of Tolerance in the Hospital Ward**
+**Day 06: The Art of Tolerance in the Hospital Ward**
 Systematic Study of Principle 4: To learn to tolerate is one of the most important responsibilities of those living in the Matha.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja

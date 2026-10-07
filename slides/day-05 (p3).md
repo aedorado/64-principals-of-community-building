@@ -1,10 +1,10 @@
-# Day 4 Slide Deck: Overcoming Spiritual Suicide & Love-Finding (Principle 3)
+# Day 05 Slide Deck: Overcoming Spiritual Suicide & Love-Finding (Principle 3)
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 4: Overcoming Spiritual Suicide & The Practice of Love-Finding**
+**Day 05: Overcoming Spiritual Suicide & The Practice of Love-Finding**
 Systematic Study of Principle 3: Compassion for struggling souls and avoiding spiritual suicide.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja

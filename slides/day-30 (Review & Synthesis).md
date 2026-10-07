@@ -1,13 +1,13 @@
-# Day 28 Slide Deck: Semester 1 Review, Synthesis & Midterm Reflections
+# Day 30 Slide Deck: Semester 1 Review, Synthesis & Midterm Reflections
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 28: Semester 1 Review, Synthesis & Midterm Reflections**
+**Day 30: Semester 1 Review, Synthesis & Midterm Reflections**
 Consolidating Modules 1, 2, and 3 (Principles 1–30) and Three Dedicated Q&A Relationship Clinics.
 
-**Speaker:** HH Bhakti Dhira Damodara Swami Maharaja
+**Speaker:** HH Bhakti Dhira Damodara Swami Maharaja  
 **Course Text:** *Reflections on Sacred Teachings V* (Review & Synthesis of Principles 1–30)
 
 ---
@@ -78,7 +78,7 @@ Consolidating Modules 1, 2, and 3 (Principles 1–30) and Three Dedicated Q&A Re
 ## Slide 11: Vaishnava Sangha
 ### **Heart-to-Heart Reflection (Integration Bridge)**
 
-1. **The Hospital Ward Cure:** Reflecting on the first 28 days, how has the "Transcendental Hospital" metaphor changed the way you view interpersonal friction, delays, or offenses in the community? Which of the first 30 principles has been the most challenging yet healing for your heart?
+1. **The Hospital Ward Cure:** Reflecting on the first 30 days of this sacred Kartika master class, how has the "Transcendental Hospital" metaphor changed the way you view interpersonal friction, delays, or offenses in the community? Which of the first 30 principles has been the most challenging yet healing for your heart?
 
 2. **Dethroning the False Ego:** We are warned against the subtle traps of image-management, pretending, and trying to cheat Krishna by offering external "wood and stone" instead of our actual hearts. How can we as a local community create a safe, non-judgmental space where devotees can drop their defensive shields and be brutally honest about their struggles?
 
@@ -87,8 +87,8 @@ Consolidating Modules 1, 2, and 3 (Principles 1–30) and Three Dedicated Q&A Re
 ## Slide 12: Hrdaya Seva
 ### **An Immediate Heart Offering**
 
-**The Midterm Silent Meditation (60 Seconds):**
-Close your eyes in quiet, screen-free meditation. Scan your heart for the vows, prayers, and promises you have made during the first 28 days of this course. Celebrate your spiritual progress, and honestly acknowledge where your mind has slipped or defended its ego. Mentally gather all your efforts and failures, laying them down as a humble flower at the lotus feet of the disciplic succession.
+**The Midterm Silent Meditation (60 Seconds):**  
+Close your eyes in quiet, screen-free meditation. Scan your heart for the vows, prayers, and promises you have made during the 30 days of this Kartika course. Celebrate your spiritual progress, and honestly acknowledge where your mind has slipped or defended its ego. Mentally gather all your efforts and failures, laying them down as a humble flower at the lotus feet of the disciplic succession.
 
-**The Midterm Action Vow:**
+**The Midterm Action Vow:**  
 Take physical pen and paper and write a private, confidential letter of gratitude to Lord Gauranga and the parampara for their constant, healing guidance. Commit to continuing your journey into Semester 2 with simplicity, truthfulness, and enthusiasm. Place this letter on your altar under the Deities or your spiritual master's picture as your sacred midterm vow.

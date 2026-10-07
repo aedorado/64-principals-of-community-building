@@ -1,10 +1,10 @@
-# Day 6 Slide Deck: Offering All Glory to the Original Source (Principle 5)
+# Day 07 Slide Deck: Offering All Glory to the Original Source (Principle 5)
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 6: Offering All Glory to the Original Source**
+**Day 07: Offering All Glory to the Original Source**
 Systematic Study of Principle 5: Uprooting pride, the danger of leadership proprietorship, and the safety of the transparent medium.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja

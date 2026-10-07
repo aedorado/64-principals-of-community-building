@@ -1,10 +1,10 @@
-# Day 7 Slide Deck: Exclusive Shelter & Uniting Under One Purpose (Principles 6 & 7)
+# Day 08 Slide Deck: Exclusive Shelter & Uniting Under One Purpose (Principles 6 & 7)
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 7: Exclusive Shelter & Uniting Under One Purpose**
+**Day 08: Exclusive Shelter & Uniting Under One Purpose**
 Systematic Study of Principle 6 (Avoiding Mixed Devotion) and Principle 7 (Becoming United with One Purpose)
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja

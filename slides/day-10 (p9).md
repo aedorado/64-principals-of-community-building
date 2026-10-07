@@ -1,10 +1,10 @@
-# Day 9 Slide Deck: Carrying the Dust of His Feet (Principle 9)
+# Day 10 Slide Deck: Carrying the Dust of His Feet (Principle 9)
 ---
 
 ## Slide 1: Title Slide
 ### **Sacred Community Course**
 
-**Day 9: Carrying the Dust of His Feet**
+**Day 10: Carrying the Dust of His Feet**
 Systematic Study of Principle 9: Rising above material designations, the trap of mundane piety, and establishing our eternal identity in the *suddha-sattva* platform.
 
 **Speaker:** HH Bhakti Dhira Damodara Swami Maharaja
