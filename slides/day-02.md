@@ -64,7 +64,15 @@ Understanding why mature peer relationships are the prerequisite for a genuine c
 
 ---
 
-## Slide 8: From Hearing to Living
+## Slide 8: "Why Could It Not Always Be Like This?"
+
+> I was so fortunate to get visits and phone calls from godbrothers and godsisters from all over the world. We recounted conflicts and problems we faced together, and shared realizations and deep appreciations of each other. We laughed and cried together in exchanges that were remarkably powerful, sweet, and loving. It was as if we were discovering each other’s sweetness and love for the first time. Visit after visit, phone call after phone call, we bid each other farewell, not actually desiring to dismiss each other, but really wanting to connect on a deeper level. I wondered why it could not always be like this.
+
+— HH Bhakti Tirtha Swami (*The Beggar IV*, Meditation 6)
+
+---
+
+## Slide 9: From Hearing to Living
 ### **An Immediate Heart Offering**
 
 Don’t just hear it — practice it.
