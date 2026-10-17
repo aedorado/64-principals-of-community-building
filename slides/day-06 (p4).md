@@ -15,7 +15,7 @@ Systematic Study of Principle 4: To learn to tolerate is one of the most importa
 ## Slide 2: Core Vision
 ### **The Prime Responsibility**
 
-"To learn to tolerate is one of the most important responsibilities of those living in the Matha or in the association of devotees because such association compares to a hospital."
+Principal 4: "To learn to tolerate is one of the most important responsibilities of those living in the Matha or in the association of devotees because such association compares to a hospital."
 
 ---
 
@@ -28,51 +28,33 @@ Systematic Study of Principle 4: To learn to tolerate is one of the most importa
 
 ---
 
-## Slide 4: The Warrior's Self-Restraint
-### **Power in Silence**
+## Slide 4: Steady Tolerance and Compassion
 
-"Powerful ksatriyas or warriors, for instance, do not have to always respond with violence because they know the power of their force and the consequences. An expert in martial arts can take someone’s life or break someone’s bones with a few simple movements; therefore, the person only exerts his or her power out of dire need."
+"Those endowed with great devotion have the capacity to be very tolerant because they care about people and understand the effects of offenses. They do not want to unnecessarily disturb people or their environment. Such personalities have deep compassion and steady tolerance because they want to help without adding to the chaos. If they cannot help, they surely do not want to create a distraction."
 
----
-
-## Slide 5: The Capacity of Great Devotion
-### **Steady Tolerance and Compassion**
-
-"Similarly, those endowed with great devotion have the capacity to be very tolerant because they care about people and understand the effects of offenses. They do not want to unnecessarily disturb people or their environment. Such personalities have deep compassion and steady tolerance because they want to help without adding to the chaos. If they cannot help, they surely do not want to create a distraction."
+"Those who really care about people try to walk them through their issues in a loving way. A good parent, recognizing the nature of young children, understands that they will be immature and will need to be handled with patience and care. Loving parents lay down some rules and regulations, but simultaneously have tolerance in trying to guide their children due to their great affection."
 
 ---
 
-## Slide 6: The Affection of a Parent
-### **Patience with Immaturity**
-
-"Those who really care about people try to walk them through their issues in a loving way. Consider the position of a child. A good parent, recognizing the nature of young children, understands that they will be immature and will need to be handled with patience and care. Loving parents lay down some rules and regulations, but simultaneously have tolerance in trying to guide their children due to their great affection."
-
----
-
-## Slide 7: Vaishnava Sangha
+## Slide 5: Vaishnava Sangha
 ### **Heart-to-Heart Reflection**
 
-1. The Insecurity of Defense: Why is it that our false ego feels so threatened when our actions or services are criticized, causing us to brag or defensively respond to every attack? How can we practically cultivate the internal strength and connection to Krishna that makes us secure?
+When we see immature behaviors or offenses in other devotees, do we handle them like loving parents guiding their children with patience and care, or do we react with irritation and gossip?
 
-2. The Parent's Heart: When we see immature behaviors or offenses in other devotees, do we handle them like loving parents guiding their children with patience and care, or do we react with irritation and gossip? How can we develop a heart that wants to help without adding to the chaos?
+How can we develop a heart that wants to help without adding to the chaos?
 
 ---
 
-## Slide 8: The Humility of Proximity
+## Slide 6: The Chaos of the Hospital Ward
 ### **Humility and Balance**
 
 "A Vaisnava is very tolerant because the closer one comes to Krishna, the more one feels a sense of humility. Those who are far from the Lord get imbalanced by whatever happens in the environment."
-
----
-
-## Slide 9: The Chaos of the Hospital Ward
-### **Different Diseases, Different Medications**
 
 "In a hospital, many people come together to get healed by taking their own medications and treatments. It is sometimes chaotic since each person has a different illness and must take different medications in order to recover."
 
 ---
 
-## Slide 10: Exposing Fake Tolerance
+## Slide 7: Exposing Fake Tolerance
 ### **The Subtle Trap of False Ego**
 
 "Some people who are tolerant let you know that they are tolerant. They let you know that you are a nonsense who really gets on their nerves, but they will tolerate you in spite of all your mistakes. In actuality, they are not really tolerating because they are actually angry and irritated. They simply want to let you know how low you are so that they can show how advanced they are."
@@ -81,7 +63,7 @@ Systematic Study of Principle 4: To learn to tolerate is one of the most importa
 
 ---
 
-## Slide 11: The Science of Association
+## Slide 8: The Science of Association
 ### **No Neutral Association**
 
 "Furthermore, there is also a risk that contagious diseases can spread to other patients in the environment. Similarly, devotees sometimes become faithless which is a contagious disease that can spread to other devotees."
@@ -90,7 +72,7 @@ Systematic Study of Principle 4: To learn to tolerate is one of the most importa
 
 ---
 
-## Slide 12: Hrdaya Seva
+## Slide 9: Hrdaya Seva
 ### **An Immediate Heart Offering**
 
 **The Meditative Pause (60 Seconds):**
