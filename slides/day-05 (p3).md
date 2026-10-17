@@ -15,7 +15,7 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 ## Slide 2: The Warning of the Sri Isopanisad
 ### **The Fate of the Faithless**
 
-P3: "Anyone who does not serve Hari, the Supreme Personality of Godhead, is ignorant and a killer of himself."
+Principle 3: "Anyone who does not serve Hari, the Supreme Personality of Godhead, is ignorant and a killer of himself."
 
 "The third text in the Sri Isopanisad states, 'The killer of the soul, whoever he may be, must enter into the planets known as the worlds of the faithless, full of darkness and ignorance.'"
 
@@ -74,14 +74,31 @@ P3: "Anyone who does not serve Hari, the Supreme Personality of Godhead, is igno
 
 4. "Realize that the people in your present environment might very well be the people with whom you will live out your life, and who will be with you at the time of death."
 
+---
+
+## Slide 9: The Gita Nagari Standard of Care
+### **Seeing Krishna & Guru in Every Interaction**
+
+"If we first accept that **offenses constantly contaminate our basic condition**, we will naturally have a certain mood of humility along with a desire to rise above such blocks."
+
+"Secondly, we should try to see all our interactions with the devotees as an **opportunity to serve our spiritual master**. We have asked the devotees here at the Gita Nagari farm community in rural Pennsylvania to **serve each other as if the success or failure of their own spiritual lives depends on their quality of service to the other devotees.**"
+
+"If we take each devotee seriously without considering their position as our senior, junior, or peer, we will have the ability to approach everyone with a genuine mood of concern and love. **Then we will not find ourselves bogged down by endless offenses because we will constantly try to see Krishna or guru in each interaction.** We will relate to each devotee with great care and attention."
+
+- Reflections on Sacred Teachings III: Harinama Cintamani
 
 ---
 
-## Slide 9: From Hearing to Living
+## Slide 10: From Hearing to Living
 ### **An Immediate Heart Offering**
+
 Don’t just hear it — practice it.
-Sit quietly for sixty seconds and look around the room (or view the names on your screen):
-- **The Ultimate Reality:** There are no accidents. These souls in your current environment may be the very ones holding kīrtana around your bed when you take your final breath.
-- **Dropping the Petty:** In the face of death and eternity, do minor grievances, slights, or differences of opinion matter at all? 
-Mentally bow to every devotee present and release all small-minded friction.
-***Kartik Sadhana: Whenever irritation arises toward a devotee, look at them and mentally remember: “This soul may be chanting Hare Krishna at my deathbed. Let me honor them now.”***
+
+Bring to mind a lingering tension, awkwardness, or unresolved friction with another devotee:
+
+- **Drop the Prosecution:** Stop replaying what *they* did wrong, how *they* spoke, or why *they* should apologize.
+- **Ask the Radical Question:** With honest humility, ask your heart: *“What was my part? Where did my subtle pride, defensiveness, or coldness add fuel to this fire?”*
+- **The Clean Slate:** Mentally release the demand to be right, understood, or vindicated.
+
+***Kartik Sadhana: Be the first to apologize. The strong soul doesn't wait for the other person to bend—they apologize first for their own lack of love, disarming the ego and restoring community peace.***
+
