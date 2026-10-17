@@ -15,7 +15,7 @@ Systematic Study of Principle 2: Overcoming egocentrism, exposing pseudo-communi
 ## Slide 2: Principle 2 — Recognizing the Only Enjoyer
 ### **The Root of Unhealthy Relationships**
 
-"The Supreme Personality of Godhead, Sri Krsna, is the only enjoyer. Everyone and everything else is the object of His enjoyment."
+Principle 2: "The Supreme Personality of Godhead, Sri Krsna, is the only enjoyer. Everyone and everything else is the object of His enjoyment."
 
 "Unhealthy relationships and minimal advancement within the devotional process often stem from the fact that we are too egocentric and into our own sovereignty."
 
@@ -24,61 +24,25 @@ Systematic Study of Principle 2: Overcoming egocentrism, exposing pseudo-communi
 ## Slide 3: Exposing the "Pseudo-Community"
 ### **The Salvationist Consciousness**
 
-"Even when we come into community, we have a tendency to use it for our own benefit. We want to see what we can get. Many times when people come into the association of devotees, instead of trying to share and give, they are more or less trying to see what they can get out of the situation."
+"Even when we come into community, instead of trying to share and give, we are more or less trying to see what we can get out of the situation."
 
-"This is called pseudo-community because it does not create real communication or cooperation between the members. It is based on a salvationist consciousness in which individuals just want to ensure their own peace and happiness."
-
----
-
-## Slide 4: Restoring the Divine Order
-### **Shifting Our Vision to the Only Enjoyer**
-
-"We cannot have deep relationships if we mainly focus on self-preservation or material accumulation."
+"This is called pseudo-community because it does not create real communication or cooperation between the members. It is based on a salvationist consciousness in which individuals just want to ensure their own peace and happiness. We cannot have deep relationships if we mainly focus on self-preservation or material accumulation."
 
 "By no longer seeing ourselves as enjoyers, we can begin to see Krishna as the only enjoyer. This understanding will also enable us to have a clearer understanding of our position and the position of the people around us."
 
 ---
 
-## Slide 5: Parts and Parcels (Bhagavad-gita 15.7)
-### **The Constitutional Position**
+## Slide 4: The Folly of Separate Enjoyment
 
-"Ultimately, God is the only purusa, or Supreme Enjoyer, and we are all prakrti. We are the same as the Lord in quality, but different in quantity:"
+"If someone brings a plate of food and the hand tries to enjoy the food without putting it into the mouth, not only will the mouth not be satisfied, but the hand will not be satisfied either. Unless the food goes into the stomach, the entire body including the hand will not receive the proper nourishment."
 
-> *mamaivāṁśo jīva-loke jīva-bhūtaḥ sanātanaḥ*  
-> *manaḥ-ṣaṣṭhānīndriyāṇi prakṛti-sthāni karṣati*  
-> "The living entities in this conditioned world are My eternal fragmental parts. Due to conditioned life, they are struggling very hard with the six senses, which include the mind."  
-> (*Bhagavad-gita*, 15.7)
+"Similarly, as the living entity tries to enjoy separate from God, who is the source, and tries to act as the enjoyer, it will be like the hand trying to enjoy separate from the body. Therefore, the living entity is constantly in anxiety because the objects of enjoyment seem to be available, but the living entity cannot really get sufficient satisfaction."
 
-"The living entity is suffering in the material world with the six senses, especially the mind. The senses force the mind to supply their needs, which creates the constant struggle in material existence."
+"For this reason, even if we somehow or other get fame, distinction, wealth, or other types of opulence, they will not completely fulfill us without spiritual life."
 
 ---
 
-## Slide 6: The Analogy of the Hand and Stomach
-### **The Folly of Separate Enjoyment**
-
-"By trying to enjoy separately in this constant pattern, we cannot be happy. For instance, a person’s hand cannot enjoy separately from the body."
-
-"If someone brings a plate of food and the hand tries to enjoy the food without putting it into the mouth, not only will the mouth not be satisfied, but the hand will not be satisfied either. Unless the food goes into the mouth and then to the stomach, the entire body including the hand will not receive the proper nourishment."
-
----
-
-## Slide 7: Anxiety in the Face of Objects
-### **Why Material Pursuits Leave Us Empty**
-
-"Similarly, as the living entity tries to enjoy separate from God, who is the source, and tries to act as the enjoyer, it will be like the hand trying to enjoy separate from the body."
-
-"Therefore, the living entity is constantly in anxiety because the objects of enjoyment seem to be available, but the living entity cannot really get sufficient satisfaction."
-
----
-
-## Slide 8: The Dessert Analogy
-### **Texture vs. Taste**
-
-"For this reason, even if we somehow or other get fame, distinction, wealth, or other types of opulence, they will not completely fulfill us without spiritual life. It is like the hand grabbing onto a delicious dessert and trying to enjoy without putting the dessert in the mouth. The hand might enjoy the texture, but it cannot enjoy the taste. It must put the dessert into the mouth in order to fully enjoy the foodstuff."
-
----
-
-## Slide 9: Nourishing the Whole System
+## Slide 5: Nourishing the Whole System
 ### **Placing Krishna at the Center**
 
 "We constantly see people trying to enjoy in so many different ways with the idea that they will find happiness from an object or type of pleasure. However, once the novelty wears off, they sometimes end up in a worse position than before beginning the pursuit."
@@ -87,20 +51,29 @@ Systematic Study of Principle 2: Overcoming egocentrism, exposing pseudo-communi
 
 ---
 
-## Slide 10: Vaishnava Sangha
-### **Heart-to-Heart Reflection (Integration Bridge)**
+## Slide 6: Vaishnava Sangha
 
-1. **Exposing Pseudo-Community:** Bhakti Tirtha Swami warns against pseudo-community, where we attend devotee gatherings primarily to seek our own comfort, peace, or validation ("what can I get?"). How can we catch this salvationist mindset in our own hearts, and how does it prevent genuine, cooperative relationships?
+1. **Exposing Pseudo-Community:** HH Bhakti Tirtha Maharaja warns against pseudo-community, where we attend devotee gatherings primarily to seek our own comfort, peace, or validation ("what can I get?"). How can we catch this salvationist mindset in our own hearts, and how does it prevent genuine, cooperative relationships?
 
 2. **The Hand and Dessert Test:** Can you share a practical experience from your own service where trying to act as the enjoyer or seeking separate credit for a project left you feeling spiritually dry and empty, exactly like a hand trying to touch a dessert without tasting it?
 
 ---
 
-## Slide 11: Hrdaya Seva
+## Slide 7: Surrendering the Illusion of the Enjoyers
+
+> Maya was bending over backwards to entice me... Generous financiers had manifested, and it seemed as if everything was laid out for my future in a materialistic sense... But I knew that if I really wanted to help the suffering people of the world in a meaningful way, then I needed to work on myself first... So I abandoned my next degree, the money, and all those material opportunities without looking back.
+
+— HH Bhakti Tirtha Swami (*Reflections IV*, Q&A)
+
+---
+
+## Slide 8: From Hearing to Living
 ### **An Immediate Heart Offering**
-
-**The 60-Second Ego Surrender:**  
-Maharaja will play soft meditative music. Close your eyes and sit in complete silence. Honestly search your heart for any current service or relationship where you are secretly seeking fame, personal distinction, or separate appreciation. Mentally gather those desires, and with absolute sincerity, lay them at Krishna's lotus feet, praying: *“My dear Lord, You are the only enjoyer. Let every ounce of credit and praise go directly to my spiritual master, Srila Prabhupada, and Your devotees.”*
-
-**The Vow of the Heart (Offline & Private):**  
-Take out a physical slip of paper and a pen. Write down one specific, realistic 24-hour vow to uproot the enjoyer mentality (for example: "For the next 24 hours, I will perform one hidden service without seeking recognition," or "Today, I will pass all praise received to someone else"). Fold the paper and place it on your home altar under your Deities or Srila Prabhupada as a direct, private promise.
+Don’t just hear it — practice it.
+Close your eyes and physically clench your right fist tightly:
+- **Feel the tension:** This tight grip represents the false enjoyer — holding onto your sovereignty, your opinions, your need for distinction, and the struggle of the mind and senses (BG 15.7). 
+- **Recognize the folly:** A clenched fist cannot receive nourishment. It holds the dessert, but starves the body.
+Now, take a deep breath and **slowly open your hand flat, palm facing upward** in complete surrender:
+- Mentally release your separate claim: *“Krishna, You are the only enjoyer. I am just a hand on Your body. Direct me as You wish.”*
+Feel the physical and mental relief of dropping the false burden of being the controller.
+***Kartik Sadhana: Keep your hands open—whenever you catch yourself fighting for control or recognition in devotee relationships, consciously unburden your mind and offer the outcome back to the center.***
