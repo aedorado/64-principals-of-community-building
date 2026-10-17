@@ -15,33 +15,15 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 ## Slide 2: The Warning of the Sri Isopanisad
 ### **The Fate of the Faithless**
 
-"Those who do not embrace spiritual nourishment are considered killers of themselves because they are not addressing the needs of their soul."
+P3: "Anyone who does not serve Hari, the Supreme Personality of Godhead, is ignorant and a killer of himself."
 
 "The third text in the Sri Isopanisad states, 'The killer of the soul, whoever he may be, must enter into the planets known as the worlds of the faithless, full of darkness and ignorance.'"
-
----
-
-## Slide 3: The Solid Boat of the Human Form
-### **The Rare Opportunity of Self-Realization**
-
-"Intelligent human beings must always remember that the soul obtains a human form after an evolution of many millions of years in the cycle of transmigration. The material world is sometimes compared to an ocean, and the human body is compared to a solid boat designed especially to cross this ocean."
-
-"The Vedic scriptures and the acaryas, or saintly teachers, are compared to expert boatmen, and the facilities of the human body are compared to favorable breezes that help the boat ply smoothly to its desired destination. If, with all these facilities, a human being does not fully utilize his life for self-realization, he must be considered atma-ha, a killer of the soul."
-
-- Srila Prabhupada
-
----
-
-## Slide 4: Principle 3 — Overcoming Spiritual Suicide
-### **The Reality of Spiritual Destruction**
-
-"Although the soul never dies, one can act so contrary to its nature that it is like committing spiritual suicide. The killer of the soul compares to a person who takes drugs or alcohol, or a person who is masochistic in some ways. Such people are actually destroying themselves."
 
 "When we live our lives in animalistic ways, we are literally killing ourselves, either through a rapid death or a slow death. Unhealthy activities naturally lead to inauspicious reactions."
 
 ---
 
-## Slide 5: Shifting from Anger to Compassion
+## Slide 3: Shifting from Anger to Compassion
 ### **Drowning in the Material Energy**
 
 "When we meet materialists or aspiring spiritualists engaged in sinful activities that kill the soul, we should have great compassion rather than anger because we understand how they are hurting themselves."
@@ -50,8 +32,7 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 
 ---
 
-## Slide 6: Love-Finding vs. Fault-Finding
-### **The Devotional Duty**
+## Slide 4: Love-Finding vs. Fault-Finding
 
 "Devotees should never be in denial. As spiritual scientists, it is our duty to look scrutinizingly, but we want to be love-finders rather than fault-finders."
 
@@ -59,7 +40,7 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 
 ---
 
-## Slide 7: The First Technology of the Love-Finder
+## Slide 5: The First Technology of the Love-Finder
 ### **Treating Everyone as Essential**
 
 1. "Treat everyone you encounter as if the success of your spiritual life depends upon the quality of your interactions with them."
@@ -68,16 +49,16 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 
 ---
 
-## Slide 8: Vaishnava Sangha
+## Slide 6: Vaishnava Sangha
 ### **Heart-to-Heart Reflection**
 
-1. Compassion over Ego: Bhakti Tirtha Swami warns that when we try to address discrepancies with anger or self-righteousness, the person's ego attacks back, "creating a big mess." How can we practically train our hearts to respond with pity and compassion rather than defensive anger when we see a devotee struggling?
+1. Compassion over Ego: Bhakti Tirtha Swami warns that when we try to address discrepancies with anger or self-righteousness, the person's ego attacks back, "creating a big mess." How can we practically train our hearts to respond with  compassion rather than defensive anger when we see a devotee struggling?
 
 2. Treating Everyone as Essential: What happens to our daily community interactions when we try to apply the first relationship technology: "Treat everyone you encounter as if the success of your spiritual life depends upon the quality of your interactions with them"?
 
 ---
 
-## Slide 9: The Second Technology of the Love-Finder
+## Slide 7: The Second Technology of the Love-Finder
 ### **Viewing Conflicts with Humility**
 
 2. "View all conflicts as your own fault first. When we care about a person and see him or her in pain, we immediately want to see how we can make a difference. We are eager to look at ourselves and with humility ask, 'What can I do?'"
@@ -86,29 +67,21 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 
 ---
 
-## Slide 10: The Third Technology of the Love-Finder
+## Slide 8: The Third & Fourth Technology of the Love-Finder
 ### **Harnessing Pure Love**
 
-3. "Reflect on the person you love the most, and aspire to treat everyone with that same quality of love. Sometimes in our materialistic consciousness, we have problems just trying to understand love."
-
-"We cannot purely love until we are freed from all sense gratification and from the material body because pure love is the full property of the soul. As a way to try to harness this love, we can think of the person who we love the most and extend that love to everyone."
-
----
-
-## Slide 11: The Fourth Technology of the Love-Finder
-### **The Seriousness of Association**
+3. "Reflect on the person you love the most, and aspire to treat everyone with that same quality of love."
 
 4. "Realize that the people in your present environment might very well be the people with whom you will live out your life, and who will be with you at the time of death."
 
-"There are no accidents; Krishna is controlling everything. We know that at any moment, we could leave the body. In many cases, we may very well leave our body in the association of the devotees in our current environment. Whatever we are formulating in our consciousness now will determine what happens when the soul is ready to leave. Therefore, we should take our associations very seriously and see how to maximize the bhakti."
 
 ---
 
-## Slide 12: Hrdaya Seva
+## Slide 9: From Hearing to Living
 ### **An Immediate Heart Offering**
-
-**The Sincere Mind-Fast (60 Seconds):**
-Maharaja will play soft flute music and ask everyone to close their eyes and sit in complete silence. Honestly search your heart for any current relationships where you are holding onto judgment, friction, or resentment. Mentally drop those complaints, and for the next 60 seconds, beg the disciplic succession to pour blessings, spiritual health, and happiness upon those souls.
-
-**The Quiet Vow of the Heart (Offline & Private):**
-Take out a physical slip of paper and a pen from your desk. Since Principle 3 is about taking emotional responsibility and applying the second technology ("View all conflicts as your own fault first"), write down one specific conflict, misunderstanding, or cold relationship in your life. Write: *"I choose to look at my own fault first. How can I serve or bring love to this situation?"* Fold the paper, turn away from the screen, and place it physically on your home altar under your Deities or Srila Prabhupada as a direct, private promise.
+Don’t just hear it — practice it.
+Sit quietly for sixty seconds and look around the room (or view the names on your screen):
+- **The Ultimate Reality:** There are no accidents. These souls in your current environment may be the very ones holding kīrtana around your bed when you take your final breath.
+- **Dropping the Petty:** In the face of death and eternity, do minor grievances, slights, or differences of opinion matter at all? 
+Mentally bow to every devotee present and release all small-minded friction.
+***Kartik Sadhana: Whenever irritation arises toward a devotee, look at them and mentally remember: “This soul may be chanting Hare Krishna at my deathbed. Let me honor them now.”***
