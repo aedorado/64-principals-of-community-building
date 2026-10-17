@@ -15,7 +15,7 @@ Systematic Study of Principle 5: Uprooting pride, the danger of leadership propr
 ## Slide 2: Principle 5 — Offering All Glory to the Original Source
 ### **The Humility of the Transparent Via Media**
 
-"Rupanuga devotees offer all glory to the original source instead of depending on their own strength."
+Principle 5: "Rupanuga devotees offer all glory to the original source instead of depending on their own strength."
 
 "It is very materialistic when we have people in the devotee community who so eagerly want to get credit for their activities, and who so eagerly want to claim responsibility. Whenever Srila Prabhupada received glorification, he would react in the opposite way by giving all the credit to his spiritual master. He would explain how any successes he had achieved simply resulted from his loyal adherence to the instructions of his spiritual master."
 
