@@ -13,16 +13,14 @@ Systematic Study of Principle 6 (Avoiding Mixed Devotion) and Principle 7 (Becom
 ---
 
 ## Slide 2: Principle 6 — Exclusive Devotion vs. Assorted Activities
-### **The Need for Depth and Chastity**
 
-"Those who perform assorted religious activities cannot serve the Supreme Personality of Godhead."
+Principle 6: "Those who perform assorted religious activities cannot serve the Supreme Personality of Godhead."
 
 "Real love is based on chastity. People who distract themselves with so many variegated activities will not do anything with depth and quality."
 
 ---
 
 ## Slide 3: The Pitfall of Spiritual Tourism
-### **The Danger of Remaining on the Surface**
 
 "Some people are spiritual tourists—one day they hang out with the Buddhists, the next day they do some mantra meditation, then they go to the Catholic Church, or perhaps later explore parts of Islam."
 
@@ -30,28 +28,35 @@ Systematic Study of Principle 6 (Avoiding Mixed Devotion) and Principle 7 (Becom
 
 ---
 
-## Slide 4: The Medical Analogy of Mixed Prescriptions
-### **The Confusion of Simultaneous Treatments**
+## Slide 4: Standing Steady in One Tradition
 
 "When a person gets sick, naturally they look for treatment. But perhaps they function in this same explorative way by trying a little homeopathic remedy, then they go to an Ayurvedic doctor, next they try allopathic care, and finally they temporarily try acupuncture."
 
-"Unfortunately, the person will never benefit from any of the remedies because they do not take a particular medicine long enough for it to have an effect. Even though each of these systems can have specific benefits and cures to particular ailments, if they never use a medicine properly, they will never sufficiently benefit."
+"Unfortunately, the person will never benefit from any of the remedies because they do not take a particular medicine long enough for it to have an effect."
 
----
+"Similarly, an aspiring spiritualist who never stays with a particular tradition for an extended period of time will not get the results that come from perseverance. Krishna will not accept mixed devotion or cheating religiosity; he wants our hearts through unmotivated and uninterrupted devotion."
 
-## Slide 5: Standing Steady in One Tradition
-### **The Prerequisite of Perseverance**
+--- 
 
-"Similarly, an aspiring spiritualist who never stays with a particular tradition for an extended period of time will not get the results that come from perseverance. Srila Bhaktisiddhanta makes this point clear."
+## Slide 5: The Living Example — Crushing Ramakrishna's Syncretism: Rejection of "Yata Mata Tata Patha"
 
-"Krishna will not accept mixed devotion or cheating religiosity; he wants our hearts through unmotivated and uninterrupted devotion."
+> **Refuting Ramakrishna’s "As Many Faiths, So Many Paths":**  
+> "Śrīla Sarasvatī Ṭhākura fiercely opposed the syncretism and populism of Ramakrishna’s catchy jingle *yata mata tata patha* ('as many opinions, so many paths').  
+> 
+> **Śrīla Sarasvatī Ṭhākura countered this by stating that those who worship on assorted religious paths cannot possibly serve Bhagavān.** He taught that real harmonizing is achievable only by aligning with Kṛṣṇa, and that any other attempts, however seemingly noble, merely engender further envy and rivalry."
+
+> **The Delhi Exchange: Is There No Other Path?**  
+> "In Delhi a young man asked, 'Why do you claim that the Gauḍīya Maṭha is the only way to God? Is there really no other path?'  
+> 
+> Śrīla Sarasvatī Ṭhākura answered: **'Do you think there can be any method to approach God other than associating with those whom Godhead Himself has selected for His service? ... There is no dharma other than Vaiṣṇava dharma. It is the eternal dharma of all jīvas.'**"
+
+*Source: Śrī Bhaktisiddhānta Vaibhava by HH Bhakti Vikāsa Swami (Volume 1, Chapter 3)*
 
 ---
 
 ## Slide 6: Principle 7 — Becoming United with One Purpose
-### **Forming Unity in Diversity**
 
-"Become united with one purpose and serve Hari."
+Principle 7: "Become united with one purpose and serve Hari."
 
 "If we put Krishna in the center, we can form a great sense of unity among our associates in spite of our differences."
 
@@ -75,38 +80,47 @@ Systematic Study of Principle 6 (Avoiding Mixed Devotion) and Principle 7 (Becom
 
 ---
 
-## Slide 9: Activities as Direct Offerings
-### **Sanctifying Every Daily Action**
+## Slide 9: Activities as Direct Offerings to the Deity
+### **Uprooting Impersonalism and Sanctifying Daily Action**
 
-"The most powerful way to achieve this goal in the Vaisnava community is to see all of our activities as offerings to Krishna. The person washing the dishes can think, 'These are Krishna’s dishes.'"
-
-"The people sweeping the floor, offering the arati, dressing the Deities, or painting the temple can all see their services as offerings to the Lord."
-
----
-
-## Slide 10: Cultivating Temple Teamship
-### **Transforming the Mood of Service**
-
-"Temples that have a very strong and powerful devotional mood focused on the Deity can then create good sadhu consciousness and guru consciousness. It will create a strong sense of teamship among the devotees."
+"The most powerful way to achieve this goal in the Vaisnava community is to see all of our activities as offerings to Krishna. The person washing the dishes can think, 'These are Krishna’s dishes.' The people sweeping the floor, offering the arati, dressing the Deities, or painting the temple can all see their services as offerings to the Lord."
 
 "As devotees perform their individual services as offerings to the Deities, they can then better appreciate the service of other devotees who also focus on the Deity. This type of consciousness brings us more into the culture of the spiritual world."
 
----
-
-## Slide 11: The Science of Deity Worship
-### **Uprooting Impersonalism and Lack of Accountability**
-
-"We can all improve in these areas. The Deity is one of the most powerful connections we have to the spiritual world. It is a very confidential aspect of God consciousness and a powerful science of how to give and receive love of God."
-
-"It gives us the means to take ourselves out of the impersonal conception and forces us to abandon our lack of accountability. We have to focus, realizing that everything we do can be arranged for Krishna’s service."
+"The Deity is one of the most powerful connections we have to the spiritual world. It gives us the means to take ourselves out of the impersonal conception and forces us to abandon our lack of accountability. We have to focus, realizing that everything we do can be arranged for Krishna’s service."
 
 ---
 
-## Slide 12: Hrdaya Seva
+## Slide 10: The Living Example — The Rādhā-Dāmodara Bus (Principle 7)
+
+> **25 Men in 35 Feet:**  
+> "Through the entire morning program, lasting five hours, **all twenty-five men stay tightly packed in the small confines of the bus, deriving tremendous energy from one another.** When they finally hit the streets they are ready to explode!"
+
+> **Kṛṣṇa at the Center:**  
+> "From the bus's temple room came reverberations of the ārati bells, mṛdaṅgas, and singing. I opened the door to see fifteen blissful brahmacārīs dancing ecstatically to Viṣṇujana's harmonium... Through their swaying bodies I caught sight of Śrī Śrī Rādhā-Dāmodara enjoying Their evening ārati.  
+> 
+> Their jewels moved to and fro with the motions of the bus as They seemed to especially take pleasure in this traveling worship. **The entire atmosphere was alive and spiritually vibrant; our bus was like a transcendental spacecraft from another world.**"
+
+*Source: Servant of the Servant by HH Tamal Krishna Goswami (Chapter 14)*
+
+---
+
+## Slide 11: From Hearing to Living
 ### **An Immediate Heart Offering**
 
-**The Sincere Mind-Fast (60 Seconds):**
-Maharaja will play soft flute music and ask everyone to close their eyes and sit in complete silence. Honestly search your heart for any devotee relationships where you are holding onto judgment, friction, or resentment. Mentally drop those complaints, and for the next 60 seconds, beg the disciplic succession to pour blessings, spiritual health, and happiness upon those souls.
+Don’t just hear it — practice it.
 
-**The 2-Minute WhatsApp Seva:**
-Maharaja will pause the Zoom call for exactly two minutes. Every devotee is invited to take out their phone right now. Send a private, sincere WhatsApp message to a peer devotee on this call, or in your local community, expressing one specific thing you appreciate about their character or service. Once you have sent your message, open the Zoom chat box and type: "I have offered my word of appreciation to a Vaishnava today as an offering of love."
+"Uproot impersonalism: Realize that everything can be arranged for Krishna’s service."
+
+**Live 90-Second Chat Exercise:**  
+What is one tedious, mundane chore or job task that you often do with boredom, grudgingly, or impersonally?
+
+In the Zoom chat, **rename it as a direct Deity offering** right now:
+
+- “My kitchen sink → Washing Sri Sri Radha-Krishna’s pots.”
+- “My daily office commute → Traveling in Krishna's mission.”
+- “My spreadsheets & accounting → Managing Sri Krishna’s assets.”
+- “Mopping the living room → Sweeping the Lord's temple room.”
+
+Post yours in the chat—let's sanctify our entire day together!
+
