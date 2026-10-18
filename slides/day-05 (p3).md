@@ -76,29 +76,46 @@ Principle 3: "Anyone who does not serve Hari, the Supreme Personality of Godhead
 
 ---
 
-## Slide 9: The Gita Nagari Standard of Care
-### **Seeing Krishna & Guru in Every Interaction**
+## Slide 9: Living Example 1 — Śrīla Bhaktisiddhānta Sarasvatī Ṭhākur
+### **"Is There Any Better Place?" (Sanctuary vs. Prosecution)**
 
-"If we first accept that **offenses constantly contaminate our basic condition**, we will naturally have a certain mood of humility along with a desire to rise above such blocks."
+Sisir Kumar Ghosh (editor of *Ananda Bazar Patrika*) challenged Śrīla Bhaktisiddhānta:  
+  > *"I see that there are many hypocrites in your mission... Why don’t you put them out? Let them go home and get married. Why keep them in your maṭha?"*
 
-"Secondly, we should try to see all our interactions with the devotees as an **opportunity to serve our spiritual master**. We have asked the devotees here at the Gita Nagari farm community in rural Pennsylvania to **serve each other as if the success or failure of their own spiritual lives depends on their quality of service to the other devotees.**"
-
-"If we take each devotee seriously without considering their position as our senior, junior, or peer, we will have the ability to approach everyone with a genuine mood of concern and love. **Then we will not find ourselves bogged down by endless offenses because we will constantly try to see Krishna or guru in each interaction.** We will relate to each devotee with great care and attention."
-
-- Reflections on Sacred Teachings III: Harinama Cintamani
+  > *Srila Saraswati Thakur replied, "What is a better place than this maṭha? Is there any better place to save them? Here they may be good or bad, but if their fortune allows, they will become good... They have been with me for several years now, and for better or worse I have developed affection for them. I cannot simply turn them out."*
 
 ---
 
-## Slide 10: From Hearing to Living
+## Slide 10: Living Example 2 — Śrī Kureśāchārya
+### **Radical Introspection (*Sva-Doṣa-Darśī*) & Love for Tormentors**
+
+When King Krimikantha sought to execute Śrī Rāmānujāchārya, his chief disciple Kuresh donned saffron robes and took his guru’s place to face the tyrant court.
+
+When the king violently ordered his eyes gouged out, Kuresh did not manifest a drop of anger, retaliation, or blame. Standing before his executioners with folded hands, he prayed:  
+  > *"May Lord Narayan bless you for allowing me to serve my guru in this way."*
+
+Kuresh replied, *"You are my true benefactors. Those two eyes constantly enticed me into worldly illusion and distracted me from beholding the beauty of my guru’s toenails. They have now been destroyed by you."*
+
+---
+
+## Slide 11: From Hearing to Living
 ### **An Immediate Heart Offering**
 
 Don’t just hear it — practice it.
 
-Bring to mind a lingering tension, awkwardness, or unresolved friction with another devotee:
+"Spiritual scientists are love-finders, not fault-finders."
 
-- **Drop the Prosecution:** Stop replaying what *they* did wrong, how *they* spoke, or why *they* should apologize.
-- **Ask the Radical Question:** With honest humility, ask your heart: *“What was my part? Where did my subtle pride, defensiveness, or coldness add fuel to this fire?”*
-- **The Clean Slate:** Mentally release the demand to be right, understood, or vindicated.
+**Live 90-Second Chat Exercise: Put on the Love-Finder’s Lens**  
+Anyone can find dirt. A Vaishnava mines for gold.
 
-***Kartik Sadhana: Be the first to apologize. The strong soul doesn't wait for the other person to bend—they apologize first for their own lack of love, disarming the ego and restoring community peace.***
+In the Zoom chat, name **one devotee** in our community and highlight **one hidden virtue, silent sacrifice, or sincerity** in them that often goes unnoticed:
+
+- *“Love-Finder's Lens on [Name]: I deeply admire their quiet punctuality in mangala-arati every single day.”*
+- *“Love-Finder's Lens on [Name]: Even when criticized, they remain patient and never speak ill of others.”*
+- *“Love-Finder's Lens on [Name]: Their endurance in book distribution despite health challenges is inspiring.”*
+
+---
+
+***Kartik Sadhana: The 3-to-1 Love-Finder's Rule — For the rest of Kartik, whenever your mind catches a fault in another devotee, do not criticize or complain. Instead, pause and find 3 genuine virtues or sacrifices in that soul, and silently offer one prayer for their spiritual advancement.***
+
 
