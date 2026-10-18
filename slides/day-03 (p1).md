@@ -70,7 +70,7 @@ Systematic Study of Principle 1: Sri Caitanya Mahaprabhu’s instruction in Siks
 
 ---
 
-## Slide 8: **"You Are My Dearest Friends"**
+## Slide 8: The Living Example - **"You Are My Dearest Friends"**
 *Śrī Bhaktisiddhānta Vaibhava* (Volume 2, Chapter 7)
 
 > **The Maṭha is the center of Hari-kīrtana, and Hari-kīrtana is life and consciousness.** To make sure that there is no place for sloth, bad conduct, trivial thought, gossip, or vulgar desire at the Maṭha, **you must go door to door, where your Hari-kīrtana will be tested by the public.** They will think they are the givers and you the receivers of alms, that their status is higher than yours, and will criticize you in many ways, considering you objects of their mercy.
@@ -83,8 +83,10 @@ Systematic Study of Principle 1: Sri Caitanya Mahaprabhu’s instruction in Siks
 
 ---
 
-## Slide 9: Hrdaya Seva
+## Slide 9: From Hearing to Living
 ### **An Immediate Heart Offering**
+
+Don’t just hear it — practice it.
 
 1. **The 180-Second Prayer:** Close your eyes, listen deeply to the Maha-Mantra, and ask Sri Caitanya Mahaprabhu to remove whatever hardness or offense remains in your heart toward any devotee.
 
