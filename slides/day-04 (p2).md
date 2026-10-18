@@ -59,7 +59,7 @@ Principle 2: "The Supreme Personality of Godhead, Sri Krsna, is the only enjoyer
 
 ---
 
-## Slide 7: Surrendering the Illusion of the Enjoyers
+## Slide 7: The Living Example -Surrendering the Illusion of the Enjoyers
 
 > Maya was bending over backwards to entice me... Generous financiers had manifested, and it seemed as if everything was laid out for my future in a materialistic sense... But I knew that if I really wanted to help the suffering people of the world in a meaningful way, then I needed to work on myself first... So I abandoned my next degree, the money, and all those material opportunities without looking back.
 
@@ -69,11 +69,15 @@ Principle 2: "The Supreme Personality of Godhead, Sri Krsna, is the only enjoyer
 
 ## Slide 8: From Hearing to Living
 ### **An Immediate Heart Offering**
+
 Don’t just hear it — practice it.
+
 Close your eyes and physically clench your right fist tightly:
 - **Feel the tension:** This tight grip represents the false enjoyer — holding onto your sovereignty, your opinions, your need for distinction, and the struggle of the mind and senses (BG 15.7). 
+[Hold it like that for a minute.]
 - **Recognize the folly:** A clenched fist cannot receive nourishment. It holds the dessert, but starves the body.
 Now, take a deep breath and **slowly open your hand flat, palm facing upward** in complete surrender:
 - Mentally release your separate claim: *“Krishna, You are the only enjoyer. I am just a hand on Your body. Direct me as You wish.”*
 Feel the physical and mental relief of dropping the false burden of being the controller.
+
 ***Kartik Sadhana: Keep your hands open—whenever you catch yourself fighting for control or recognition in devotee relationships, consciously unburden your mind and offer the outcome back to the center.***
