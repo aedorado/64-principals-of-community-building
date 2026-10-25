@@ -103,16 +103,16 @@ Don’t just hear it — practice it.
 
 "Where there is discussion about Hari, that is a place of pilgrimage."
 
-**Live 90-Second Chat Exercise: Declare Your Spiritual Embassy**  
-If a robber kingdom can become a holy dhāma through hari-kathā, so can our daily environments.
+**Live 90-Second Chat Exercise: Turn This Room into a Holy Dhāma**  
+Śrīla Sarasvatī Ṭhākura taught that wherever Hari is discussed, that spot instantly becomes Vaikuṇṭha. Let's make this Zoom room a place of pilgrimage right now.
 
-In the Zoom chat, **declare one space in your life as a Place of Pilgrimage** by dedicating its discussions to Hari:
+In the Zoom chat, **drop one 1-line nectar seed of Hari-kathā or a pastime** that touched your heart recently:
 
-- *“My dining table → Sanctified by daily Krishna-katha and prasadam.”*
-- *“My car on the commute → A traveling kirtan temple.”*
-- *“My WhatsApp chat with devotee friends → A portal for sharing pastimes, not gossip.”*
+- *“How baby Krishna stole butter and allowed mother Yashoda to bind Him with love.”*
+- *“How Srila Prabhupada stepped off the Jaladuta with just 40 rupees and immense faith in the Holy Name.”*
+- *“How King Vīra Hamvīra wept upon hearing the Bhramara-gītā from Śrīnivāsa Ācārya.”*
 
-Post yours in the chat—let's sanctify our entire day together!
+💬 *Post your 1-line seed in the chat—let's fill our saṅgha with the fragrance of the holy dhāma!*
 
 ---
 

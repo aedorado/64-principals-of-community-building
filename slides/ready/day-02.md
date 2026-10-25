@@ -77,8 +77,14 @@ Understanding why mature peer relationships are the prerequisite for a genuine c
 
 Don’t just hear it — practice it.
 
-Take five minutes right now to message one devotee from this call or your local community.
-If possible, choose someone you usually keep a little distance from, avoid, or have some reservations about, and look sincerely for one quality, act of service, or contribution in them that you can appreciate.
+Take 3-4 minutes right now to message one devotee on WhatsApp/SMS from this call or your local community.  
+If possible, choose someone you usually keep a little distance from, avoid, or have some reservations about, and look sincerely for one quality, act of service, or contribution in **them that you can appreciate**.
+
+**Sample Message Templates:**
+- *“Hare Krishna Prabhu/Mataji, Dandavat pranam. I was just reflecting during class and wanted to reach out with a quick note of gratitude. I really admire your steady dedication to [their seva / mangal-arati / kirtan] and how sincerely you serve. Thank you for your inspiring example!”*
+- *“Hare Krishna [Name], please accept my humble obeisances. I just wanted to express my genuine appreciation for you today. I've always noticed and respected your [patience / humility / deep faith]. I feel very grateful to serve in the same community with you.”*
+
 Let what we are hearing today become a living expression of vaiṣṇava-sevā and appreciation.
-***And perhaps, make this a Kartik practice: one heartfelt appreciation, every day.***
+
+***Kartik Sadhana: And perhaps, make this a Kartik practice: one heartfelt appreciation, every day.***
 
