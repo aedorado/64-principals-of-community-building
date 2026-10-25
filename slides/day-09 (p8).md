@@ -116,4 +116,4 @@ Post yours in the chat—let's sanctify our entire day together!
 
 ---
 
-***Kartik Sadhana: The Embassy Rule — For the rest of Kartik, whenever you sit with family or devotees for a meal, dedicate the first 5 minutes exclusively to discussing a pastime of Krishna, Lord Caitanya, or Srila Prabhupada rather than any worldly topics!***
+***Kartik Sadhana: The Embassy Rule — For the rest of Kartik, whenever you meet with family or devotees, dedicate the first 5 minutes exclusively to discussing a pastime of Krishna, Lord Caitanya, or Srila Prabhupada rather than any worldly topics!***
