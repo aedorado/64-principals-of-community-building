@@ -110,9 +110,9 @@ Anyone can find dirt. A Vaishnava mines for gold.
 
 In the Zoom chat, name **one devotee** in our/your community and highlight **one hidden virtue, silent sacrifice, or sincerity** in them that often goes unnoticed:
 
-- *“Love-Finder's Lens on [Name]: I deeply admire their quiet punctuality in mangala-arati every single day.”*
-- *“Love-Finder's Lens on [Name]: Even when criticized, they remain patient and never speak ill of others.”*
-- *“Love-Finder's Lens on [Name]: Their endurance in book distribution despite health challenges is inspiring.”*
+- *“[Name]: I deeply admire their quiet punctuality in mangala-arati every single day.”*
+- *“[Name]: Even when criticized, they remain patient and never speak ill of others.”*
+- *“[Name]: Their endurance in book distribution despite health challenges is inspiring.”*
 
 ---
 
