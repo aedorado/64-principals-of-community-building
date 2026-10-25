@@ -108,7 +108,7 @@ Don’t just hear it — practice it.
 **Live 90-Second Chat Exercise: Put on the Love-Finder’s Lens**  
 Anyone can find dirt. A Vaishnava mines for gold.
 
-In the Zoom chat, name **one devotee** in our community and highlight **one hidden virtue, silent sacrifice, or sincerity** in them that often goes unnoticed:
+In the Zoom chat, name **one devotee** in our/your community and highlight **one hidden virtue, silent sacrifice, or sincerity** in them that often goes unnoticed:
 
 - *“Love-Finder's Lens on [Name]: I deeply admire their quiet punctuality in mangala-arati every single day.”*
 - *“Love-Finder's Lens on [Name]: Even when criticized, they remain patient and never speak ill of others.”*

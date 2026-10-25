@@ -72,11 +72,11 @@ Principle 2: "The Supreme Personality of Godhead, Sri Krsna, is the only enjoyer
 
 Don’t just hear it — practice it.
 
-Close your eyes and physically clench your right fist tightly:
+Physically clench your right fist tightly:
 - **Feel the tension:** This tight grip represents the false enjoyer — holding onto your sovereignty, your opinions, your need for distinction, and the struggle of the mind and senses (BG 15.7). 
 [Hold it like that for a minute.]
 - **Recognize the folly:** A clenched fist cannot receive nourishment. It holds the dessert, but starves the body.
-Now, take a deep breath and **slowly open your hand flat, palm facing upward**. Feel the physical and mental relief of dropping the false burden of being the controller.
+Now, take a deep breath and **slowly open your hand**. Feel the physical and mental relief of dropping the false burden of being the controller.
 - Pray to Krishna sincerely from your heart: *“Krishna, You are the only enjoyer & I am your humble servant. Please direct me as You wish.”*
 
 ***Kartik Sadhana: Keep your hands open—whenever you catch yourself fighting for control or recognition in devotee relationships, consciously unburden your mind and offer the outcome back to the center.***
