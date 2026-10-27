@@ -64,9 +64,10 @@ Systematic Study of Principle 1: Sri Caitanya Mahaprabhu’s instruction in Siks
 ## Slide 7: Vaishnava Sangha
 ### **Heart-to-Heart Reflection (Integration Bridge)**
 
-1. **Living the Eight Prayers:** Lord Caitanya distilled His entire heart into just eight prayers. If someone were to watch how you treat the devotees around you each day, would they recognize the spirit of the Śikṣāṣṭaka in your actions, patience, and speech? 
+1. A Genuine Collective Appeal for Mercy: 
+When we make Sankirtana the focal point of our lives and community, and chant and dance together at the temple, at home, or during parikramas, what has been our experience, and what was the state of our hearts? 
 
-2. **A Shared Cry for Shelter:** When was the last time a kirtana truly melted your heart and made you feel united with every soul in the room? What is one thing you can offer from your own heart to help turn routine temple singing into a genuine collective appeal for mercy?
+How has our experience of Sankirtana and our collective consciousness changed from the time of Sri Chaitanya Mahaprabhu and Srila Prabhupada to the present day?
 
 ---
 
@@ -86,9 +87,14 @@ Systematic Study of Principle 1: Sri Caitanya Mahaprabhu’s instruction in Siks
 ## Slide 9: From Hearing to Living
 ### **An Immediate Heart Offering**
 
-Don’t just hear it — practice it.
+Don't just hear it — practice it.
 
-1. **The 180-Second Prayer:** Close your eyes, listen deeply to the Maha-Mantra, and ask Sri Caitanya Mahaprabhu to remove whatever hardness or offense remains in your heart toward any devotee.
+The next time you go to your temple or participate in a Sankirtana — either at home or in the streets — what changes will you bring in the way you sing or dance? What will you do to bring your whole heart, your full consciousness into it?
 
-2. **Prayer for a Struggling Devotee:** Hold in your heart one devotee from this sangha who may be struggling, exhausted, or carrying a quiet burden, and silently pray for their protection and joy in Krishna’s service.
+**Take one small yet powerful commitment today and share it in the chat:**
 
+> *How will you make your next Sankirtana a step towards truly living **param vijayate śrī-kṛṣṇa-saṅkīrtanam** — and bringing more love and spirituality into your community?*
+
+---
+
+***Kartik Sadhana: The Joint Glorification Rule — For the rest of Kartik, don't let your hearing and chanting stay solitary. Each day, invite one devotee to join you for even 5 minutes of rounds or kirtan, turning private sadhana into sankirtana.***
