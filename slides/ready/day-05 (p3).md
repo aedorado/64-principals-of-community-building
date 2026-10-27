@@ -12,18 +12,26 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 
 ---
 
-## Slide 2: The Warning of the Sri Isopanisad
+## Slide 2: The Root of the Problem
+### **Why Do Our Relationships Stay Shallow, Even Among Devotees?**
+
+"Unhealthy relationships and minimal advancement within the devotional process often stem from the fact that we are too egocentric and into our own sovereignty."
+
+---
+
+## Slide 3: The Warning of the Sri Isopanisad
 ### **The Fate of the Faithless**
 
 Principle 3: "Anyone who does not serve Hari, the Supreme Personality of Godhead, is ignorant and a killer of himself."
 
-"The third text in the Sri Isopanisad states, 'The killer of the soul, whoever he may be, must enter into the planets known as the worlds of the faithless, full of darkness and ignorance.'"
+'The killer of the soul, whoever he may be, must enter into the planets known as the worlds of the faithless, full of darkness and ignorance.'
+~ Isopanishad 3
 
-"When we live our lives in animalistic ways, we are literally killing ourselves, either through a rapid death or a slow death. Unhealthy activities naturally lead to inauspicious reactions."
+"When we live our lives in animalistic ways, we are literally killing ourselves. Unhealthy activities naturally lead to inauspicious reactions."
 
 ---
 
-## Slide 3: Shifting from Anger to Compassion
+## Slide 4: Shifting from Anger to Compassion
 ### **Drowning in the Material Energy**
 
 "When we meet materialists or aspiring spiritualists engaged in sinful activities that kill the soul, we should have great compassion rather than anger because we understand how they are hurting themselves."
@@ -32,7 +40,7 @@ Principle 3: "Anyone who does not serve Hari, the Supreme Personality of Godhead
 
 ---
 
-## Slide 4: Love-Finding vs. Fault-Finding
+## Slide 5: Love-Finding vs. Fault-Finding
 
 "Devotees should never be in denial. As spiritual scientists, it is our duty to look scrutinizingly, but we want to be love-finders rather than fault-finders."
 
@@ -40,34 +48,17 @@ Principle 3: "Anyone who does not serve Hari, the Supreme Personality of Godhead
 
 ---
 
-## Slide 5: The First Technology of the Love-Finder
+## Slide 6: The First & Second Technology of the Love-Finder
 ### **Treating Everyone as Essential**
 
 1. "Treat everyone you encounter as if the success of your spiritual life depends upon the quality of your interactions with them."
 
-"If we can function in this mood, then every association becomes a wonderful chance to enhance our spiritual life and a wonderful chance to grow and serve."
-
----
-
-## Slide 6: Vaishnava Sangha
-### **Heart-to-Heart Reflection**
-
-1. Compassion over Ego: Bhakti Tirtha Swami warns that when we try to address discrepancies with anger or self-righteousness, the person's ego attacks back, "creating a big mess." How can we practically train our hearts to respond with  compassion rather than defensive anger when we see a devotee struggling?
-
-2. Treating Everyone as Essential: What happens to our daily community interactions when we try to apply the first relationship technology: "Treat everyone you encounter as if the success of your spiritual life depends upon the quality of your interactions with them"?
-
----
-
-## Slide 7: The Second Technology of the Love-Finder
-### **Viewing Conflicts with Humility**
-
 2. "View all conflicts as your own fault first. When we care about a person and see him or her in pain, we immediately want to see how we can make a difference. We are eager to look at ourselves and with humility ask, 'What can I do?'"
 
-"How wonderful when one of the people in a conflict is strong enough to think, 'I am not going to fight over this issue or let my ego take over. I want to look at what I could have done and what I can do now to create a greater sense of devotion in our community and in our service.'"
 
 ---
 
-## Slide 8: The Third & Fourth Technology of the Love-Finder
+## Slide 7: The Third & Fourth Technology of the Love-Finder
 ### **Harnessing Pure Love**
 
 3. "Reflect on the person you love the most, and aspire to treat everyone with that same quality of love."
@@ -76,7 +67,7 @@ Principle 3: "Anyone who does not serve Hari, the Supreme Personality of Godhead
 
 ---
 
-## Slide 9: Living Example 1 — Śrīla Bhaktisiddhānta Sarasvatī Ṭhākur
+## Slide 8: Living Example 1 — Śrīla Bhaktisiddhānta Sarasvatī Ṭhākur
 ### **"Is There Any Better Place?" (Sanctuary vs. Prosecution)**
 
 Sisir Kumar Ghosh (editor of *Ananda Bazar Patrika*) challenged Śrīla Bhaktisiddhānta:  
@@ -86,7 +77,7 @@ Sisir Kumar Ghosh (editor of *Ananda Bazar Patrika*) challenged Śrīla Bhaktisi
 
 ---
 
-## Slide 10: Living Example 2 — Śrī Kureśāchārya
+## Slide 9: Living Example 2 — Śrī Kureśāchārya
 ### **Radical Introspection (*Sva-Doṣa-Darśī*) & Love for Tormentors**
 
 When King Krimikantha sought to execute Śrī Rāmānujāchārya, his chief disciple Kuresh donned saffron robes and took his guru’s place to face the tyrant court.
@@ -95,6 +86,15 @@ When the king violently ordered his eyes gouged out, Kuresh did not manifest a d
   > *"May Lord Narayan bless you for allowing me to serve my guru in this way."*
 
 Kuresh replied, *"You are my true benefactors. Those two eyes constantly enticed me into worldly illusion and distracted me from beholding the beauty of my guru’s toenails. They have now been destroyed by you."*
+
+---
+
+## Slide 10: Vaishnava Sangha
+### **Heart-to-Heart Reflection**
+
+1. Compassion over Ego: Bhakti Tirtha Swami warns that when we try to address discrepancies with anger or self-righteousness, the person's ego attacks back, "creating a big mess." How can we practically train our hearts to respond with  compassion rather than defensive anger when we see a devotee struggling?
+
+2. Treating Everyone as Essential: What happens to our daily community interactions when we try to apply the first relationship technology: "Treat everyone you encounter as if the success of your spiritual life depends upon the quality of your interactions with them"?
 
 ---
 
