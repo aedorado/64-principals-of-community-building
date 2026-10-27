@@ -28,7 +28,7 @@ Principle 8: "Where there is discussion about Hari, that is a place of pilgrimag
 
 ---
 
-## Slide 4: Portals into the Spiritual World
+## Slide 4: Spiritual Embassies
 
 "There are so many different types of temples all around the world—large communities with hundreds of people and small communities with only a handful of devotees—and each is a place of pilgrimage due to the constant discussions about Krishna and the spiritual world. These temples are like spiritual embassies, and the spiritual masters are like the ambassadors."
 
@@ -47,17 +47,7 @@ Principle 8: "Where there is discussion about Hari, that is a place of pilgrimag
 
 ---
 
-## Slide 6: Vaishnava Sangha
-### **Heart-to-Heart Reflection**
-
-1. The Spiritual Embassy: Bhakti Tirtha Swami compares the temple to an embassy and the spiritual master to an ambassador with the power of attorney. How does this shift our appreciation of the temple room? What does it mean to "obtain a visa" to enter Goloka?
-
-2. Discussions of Hari: How can we practically make our homes and work offices into "places of pilgrimage"?
-
----
-
-## Slide 7: The Descent of Golokera Prema-Dhana
-### **The Holy Name as the Key to the Door**
+## Slide 6: The Key to the Spiritual Realms
 
 "Golokera prema-dhana hari-nama-sankirtana: 'The treasure of divine love in Goloka Vrndavana has descended as the congregational chanting of Lord Hari’s holy names.' It is coming into the temple environment so that we can associate with spiritual realities and then use it as a key for opening the door to the spiritual realms."
 
@@ -65,7 +55,7 @@ Principle 8: "Where there is discussion about Hari, that is a place of pilgrimag
 
 ---
 
-## Slide 8: The Living Example — Śrīnivāsa Ācārya & King Vīra Hamvīra (Part 1)
+## Slide 7: The Living Example — Śrīnivāsa Ācārya & King Vīra Hamvīra (Part 1)
 ### **The Stolen Treasure & The Melting Recitation**
 
 > **The Ambush of the Sacred Manuscripts:**  
@@ -80,7 +70,7 @@ Principle 8: "Where there is discussion about Hari, that is a place of pilgrimag
 
 ---
 
-## Slide 9: The Living Example — Śrīnivāsa Ācārya & King Vīra Hamvīra (Part 2)
+## Slide 8: The Living Example — Śrīnivāsa Ācārya & King Vīra Hamvīra (Part 2)
 ### **From Robber Jungle to Holy Dhāma (Principle 8 in Action)**
 
 > **The Robber King's Confession:**  
@@ -96,6 +86,15 @@ Principle 8: "Where there is discussion about Hari, that is a place of pilgrimag
 
 ---
 
+## Slide 9: Vaishnava Sangha
+### **Heart-to-Heart Reflection**
+
+1. **The Spiritual Embassy:** Bhakti Tirtha Swami compares the temple to an embassy and the spiritual master to an ambassador with the power of attorney. How does this shift our appreciation of the temple room? What does it mean to "obtain a visa" to enter Goloka?
+
+2. **Discussions of Hari:** How can we practically transform our homes, cars, and work desks into "places of pilgrimage" through the habit of Hari-kathā?
+
+---
+
 ## Slide 10: From Hearing to Living
 ### **An Immediate Heart Offering**
 
@@ -104,15 +103,11 @@ Don’t just hear it — practice it.
 "Where there is discussion about Hari, that is a place of pilgrimage."
 
 **Live 90-Second Chat Exercise: Turn This Room into a Holy Dhāma**  
-Śrīla Sarasvatī Ṭhākura taught that wherever Hari is discussed, that spot instantly becomes Vaikuṇṭha. Let's make this Zoom room a place of pilgrimage right now.
-
 In the Zoom chat, **drop one 1-line nectar seed of Hari-kathā or a pastime** that touched your heart recently:
 
 - *“How baby Krishna stole butter and allowed mother Yashoda to bind Him with love.”*
 - *“How Srila Prabhupada stepped off the Jaladuta with just 40 rupees and immense faith in the Holy Name.”*
 - *“How King Vīra Hamvīra wept upon hearing the Bhramara-gītā from Śrīnivāsa Ācārya.”*
-
-💬 *Post your 1-line seed in the chat—let's fill our saṅgha with the fragrance of the holy dhāma!*
 
 ---
 
