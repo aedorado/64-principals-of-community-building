@@ -19,8 +19,7 @@ Systematic Study of Principle 3: Compassion for struggling souls and avoiding sp
 
 ---
 
-## Slide 3: The Warning of the Sri Isopanisad
-### **The Fate of the Faithless**
+## Slide 3: The Solution
 
 Principle 3: "Anyone who does not serve Hari, the Supreme Personality of Godhead, is ignorant and a killer of himself."
 
