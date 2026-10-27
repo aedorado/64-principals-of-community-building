@@ -12,33 +12,25 @@ Systematic Study of Principle 6 (Avoiding Mixed Devotion) and Principle 7 (Becom
 
 ---
 
-## Slide 2: Principle 6 — Exclusive Devotion vs. Assorted Activities
+## Slide 2: The Root of the Problem
+### **Why Do Our Spiritual Commitments Remain Superficial?**
+
+"People who distract themselves with so many variegated activities will not do anything with depth and quality. Some people are spiritual tourists—they practice a little of each, or perhaps they do not imbibe any of it into their lives. By just remaining on the surface of each tradition, their lives become rather useless."
+
+"When a person gets sick, if they try a little homeopathy, then Ayurveda, then allopathy, and finally acupuncture—they will never benefit because they do not take a particular medicine long enough for it to have an effect. Similarly, an aspiring spiritualist who never stays with a particular tradition for an extended period of time will not get the results that come from perseverance."
+
+---
+
+## Slide 3: Principle 6 — Exclusive Shelter & Chastity
 
 Principle 6: "Those who perform assorted religious activities cannot serve the Supreme Personality of Godhead."
 
-"Real love is based on chastity. People who distract themselves with so many variegated activities will not do anything with depth and quality."
+"Real love is based on chastity. Krishna will not accept mixed devotion or cheating religiosity; He wants our hearts through unmotivated and uninterrupted devotion."
 
 ---
 
-## Slide 3: The Pitfall of Spiritual Tourism
-
-"Some people are spiritual tourists—one day they hang out with the Buddhists, the next day they do some mantra meditation, then they go to the Catholic Church, or perhaps later explore parts of Islam."
-
-"Then, after all the exploring, they practice a little of each, or perhaps they do not imbibe any of it into their lives. Such people never become deeply involved in any practice and never really commit themselves. By just remaining on the surface of each tradition, their lives become rather useless."
-
----
-
-## Slide 4: Standing Steady in One Tradition
-
-"When a person gets sick, naturally they look for treatment. But perhaps they function in this same explorative way by trying a little homeopathic remedy, then they go to an Ayurvedic doctor, next they try allopathic care, and finally they temporarily try acupuncture."
-
-"Unfortunately, the person will never benefit from any of the remedies because they do not take a particular medicine long enough for it to have an effect."
-
-"Similarly, an aspiring spiritualist who never stays with a particular tradition for an extended period of time will not get the results that come from perseverance. Krishna will not accept mixed devotion or cheating religiosity; he wants our hearts through unmotivated and uninterrupted devotion."
-
---- 
-
-## Slide 5: The Living Example — Crushing Ramakrishna's Syncretism: Rejection of "Yata Mata Tata Patha"
+## Slide 4: The Living Example — Crushing Syncretism
+### **Śrīla Bhaktisiddhānta Sarasvatī Ṭhākura (Rejection of "Yata Mata Tata Patha")**
 
 > **Refuting Ramakrishna’s "As Many Faiths, So Many Paths":**  
 > "Śrīla Sarasvatī Ṭhākura fiercely opposed the syncretism and populism of Ramakrishna’s catchy jingle *yata mata tata patha* ('as many opinions, so many paths').  
@@ -54,46 +46,38 @@ Principle 6: "Those who perform assorted religious activities cannot serve the S
 
 ---
 
-## Slide 6: Principle 7 — Becoming United with One Purpose
+## Slide 5: Principle 7 — Becoming United with One Purpose
 
 Principle 7: "Become united with one purpose and serve Hari."
 
 "If we put Krishna in the center, we can form a great sense of unity among our associates in spite of our differences."
 
----
-
-## Slide 7: Reconciling Differences Like Family
-### **The Children-and-Parents Analogy**
-
-"For instance, in a family, the children may have many differences and may even fight at times, but because of their mutual love for their parents and their desire to please them, the children find ways to reconcile their differences."
-
-"By denying some of their own egoistic tendencies, anxieties, and problems, they find ways to help each other and even make the family stronger. As a result, they end up complementing each other. If we become united with one purpose in Krishna consciousness, we will create strong and powerful communities."
+"In a family, the children may have many differences and may even fight at times, but because of their mutual love for their parents and their desire to please them, the children find ways to reconcile their differences. By denying some of their own egoistic tendencies, anxieties, and problems, they find ways to help each other and even make the family stronger. As a result, they end up complementing each other."
 
 ---
 
-## Slide 8: Vaishnava Sangha
-### **Heart-to-Heart Reflection**
-
-1. The Trap of Spiritual Tourism: Why is it often easier for the mind to flirt with multiple paths ("spiritual tourism") than to stick to one disciplic line through the hard, purifying work of inner transformation?
-
-2. Putting Krishna in the Center: How can the children-and-parents family analogy help us practically resolve management, sibling rivalry, or interpersonal friction in our local temples and communities?
-
----
-
-## Slide 9: Activities as Direct Offerings to the Deity
+## Slide 6: Activities as Direct Offerings to the Deity
 ### **Uprooting Impersonalism and Sanctifying Daily Action**
 
 "The most powerful way to achieve this goal in the Vaisnava community is to see all of our activities as offerings to Krishna. The person washing the dishes can think, 'These are Krishna’s dishes.' The people sweeping the floor, offering the arati, dressing the Deities, or painting the temple can all see their services as offerings to the Lord."
 
-"As devotees perform their individual services as offerings to the Deities, they can then better appreciate the service of other devotees who also focus on the Deity. This type of consciousness brings us more into the culture of the spiritual world."
-
-"The Deity is one of the most powerful connections we have to the spiritual world. It gives us the means to take ourselves out of the impersonal conception and forces us to abandon our lack of accountability. We have to focus, realizing that everything we do can be arranged for Krishna’s service."
+"The Deity is one of the most powerful connections we have to the spiritual world. It gives us the means to take ourselves out of the impersonal conception and forces us to abandon our lack of accountability, realizing that everything we do can be arranged for Krishna’s service."
 
 ---
 
-## Slide 10: The Living Example — The Rādhā-Dāmodara Bus (Principle 7)
+## Slide 7: Unity in Diversity
+### **The Culture of the Spiritual World**
 
-> **25 Men in 35 Feet:**  
+"As devotees perform their individual services as offerings to the Deities, they can then better appreciate the service of other devotees who also focus on the Deity."
+
+"This brings us more into the culture of the spiritual world. In the spiritual world, everything that happens is for the satisfaction and pleasure of the Divine Couple. Consequently, there is tremendous unity with diversity as everyone is absorbed in Krishna consciousness."
+
+---
+
+## Slide 8: The Living Example — The Rādhā-Dāmodara Bus
+### **25 Men in 35 Feet: Kṛṣṇa at the Center**
+
+> **Deriving Energy from One Another:**  
 > "Through the entire morning program, lasting five hours, **all twenty-five men stay tightly packed in the small confines of the bus, deriving tremendous energy from one another.** When they finally hit the streets they are ready to explode!"
 
 > **Kṛṣṇa at the Center:**  
@@ -105,22 +89,32 @@ Principle 7: "Become united with one purpose and serve Hari."
 
 ---
 
-## Slide 11: From Hearing to Living
+## Slide 9: Vaishnava Sangha
+### **Heart-to-Heart Reflection**
+
+1. **The Trap of Spiritual Tourism:** Why is it often easier for the mind to flirt with multiple paths than to stick to one disciplic line through the hard, purifying work of inner transformation?
+
+2. **Putting Krishna at the Center:** How does seeing the community as a family with Krishna at the center help us deny our personal egoistic tendencies when interpersonal friction arises?
+
+---
+
+## Slide 10: From Hearing to Living
 ### **An Immediate Heart Offering**
 
 Don’t just hear it — practice it.
 
 "Uproot impersonalism: Realize that everything can be arranged for Krishna’s service."
 
-**Live 90-Second Chat Exercise:**  
+**Live 90-Second Chat Exercise: Rename Your Mundane Chore**  
 What is one tedious, mundane chore or job task that you often do with boredom, grudgingly, or impersonally?
 
 In the Zoom chat, **rename it as a direct Deity offering** right now:
 
-- “My kitchen sink → Washing Sri Sri Radha-Krishna’s pots.”
-- “My daily office commute → Traveling in Krishna's mission.”
-- “My spreadsheets & accounting → Managing Sri Krishna’s assets.”
-- “Mopping the living room → Sweeping the Lord's temple room.”
+- *“My kitchen sink → Washing Sri Sri Radha-Krishna’s pots.”*
+- *“My daily office commute → Traveling in Krishna's mission.”*
+- *“My spreadsheets & accounting → Managing Sri Krishna’s assets.”*
+- *“Mopping the living room → Sweeping the Lord's temple room.”*
 
-Post yours in the chat—let's sanctify our entire day together!
+---
 
+***Kartik Sadhana: The One-Purpose Rule — For the rest of Kartik, pick one mundane chore you do every day. Before beginning, pause and consciously declare: "This is an offering solely for the pleasure of Sri Sri Radha-Krishna," transforming ordinary duty into direct Deity seva.***
